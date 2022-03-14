@@ -1,0 +1,33 @@
+## Pork Tenderloin With Cherry Sauce
+
+[7ad7aea00f](http://www.food.com/recipe/pork-tenderloin-with-cherry-sauce-217061)
+
+### Ingredients
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 2 teaspoon of oil, olive, salad or cooking
+
+ - 14 cup of shallots, raw
+
+ - 34 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 14 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 1 cup of soup, chicken broth or bouillon, dry
+
+ - 1 tablespoon of vinegar, balsamic
+
+ - 1 cup of cherries, sweet, raw
+
+ - 2 tablespoon of cherries, sweet, raw
+
+ - 1 teaspoon of butter, without salt
+
+ - 1 teaspoon of sugars, brown
+
+### Instructions
+
+Heat oven to 350F Warm 1 tablespoon oil in ovenproof skillet over medium heat. Add shallots; cook 1 to 3 minutes or until. lightly browned. Drain on paper towels; reserve. Season tenderloin with salt and pepper. Heat remaining 2 teaspoons oil in ovenproof skillet over medium-high heat. Add. tenderloin and cook until browned, about 9 minutes, turning as needed to brown evenly. Transfer skillet to oven. Cook until internal temperature of pork reaches 155F, about 10 minutes. Transfer tenderloin to. cutting board and tent with aluminum foil to keep warm. Return skillet to stove top. Add broth, vinegar, and cherries to skillet on medium-high heat, scraping up browned bits with rubber spatula. Mash cherries with fork and cook 5 to 6 minutes or until liquid is reduced to about 1/2 cup. Lower heat to medium, add butter and brown. sugar, and swirl pan until well incorporated. To serve, slice warm tenderloin on diagonal, top with sauce, and sprinkle on reserved shallots.

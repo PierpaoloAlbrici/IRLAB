@@ -1,0 +1,19 @@
+## Peanut Buttery Ice Cream Cones
+
+[c5bcfc59bb](http://cooking.nytimes.com/recipes/11230)
+
+### Ingredients
+
+ - 1/2 cup of peanut butter, smooth style, without salt
+
+ - 1/2 cup of sugars, granulated
+
+ - 13 cup of egg, white, raw, fresh
+
+ - 1/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/4 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+In a mixing bowl, combine the peanut butter and sugar. Using an electric mixer, blend this mixture together. Add the egg whites and blend. Add the flour and blend. Add the milk and blend smooth. Heat a pizelle iron. Place about one tablespoon of the mixture onto the iron. Press close and cook until golden brown, about 35 seconds. Remove one at a time and, using a metal cone as a guide, roll into a cone shape.

@@ -1,0 +1,17 @@
+## Lemon Shortbread
+
+[eead9991ba](https://cookpad.com/us/recipes/148011-lemon-shortbread)
+
+### Ingredients
+
+ - 180 g of wheat flour, white, all-purpose, unenriched
+
+ - 100 g of butter, without salt
+
+ - 50 g of sugars, granulated
+
+ - 1 tablespoon of lemon juice, raw
+
+### Instructions
+
+Return the butter to room temperature and mix in the sugar. Whisk the two together until the mixture becomes white and fluffy, then add lemon juice. Cut in the flour with a spatula, then bring it all together into one ball of dough. Shape the dough, cut into squares and pierce with a fork. Bake for 17-20 minutes at 160C (320F). Using a fork is an easy way to dock and pattern the dough.

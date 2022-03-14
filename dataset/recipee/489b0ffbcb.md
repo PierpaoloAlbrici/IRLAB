@@ -1,0 +1,27 @@
+## Dads Famous Meat Marinade
+
+[489b0ffbcb](http://tastykitchen.com/recipes/condiments/dade28099s-famous-meat-marinade/)
+
+### Ingredients
+
+ - 1/2 cup of oil, olive, salad or cooking
+
+ - 3/4 cup of soy sauce made from soy (tamari)
+
+ - 1/4 cup of sauce, worcestershire
+
+ - 2 tablespoon of mustard, prepared, yellow
+
+ - 2 1/4 teaspoon of salt, table
+
+ - 1 tablespoon of spices, pepper, black
+
+ - 1/2 cup of vinegar, red wine
+
+ - 1/2 teaspoon of spices, parsley, dried
+
+ - 13 cup of lemon juice, raw
+
+### Instructions
+
+Comine all the ingredients into a vessel and give it a good shake to combine. Ive found that either using a martini shaker or one glass over another is the best method or even putting it into a Ziploc bag and shaking it works. Just so its mixed! Toss the meat in with the marinade and let it do its job! 30 minutes if you want a hit of flavor, longer for a bit more kick. I usually marinate mine overnight for the best flavor. If cooking with filet, make sure to wrap in bacon to seal in the flavor.

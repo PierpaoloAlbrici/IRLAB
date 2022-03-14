@@ -1,0 +1,27 @@
+## Peach Pork Tenderloin
+
+[db0cc372ea](http://www.food.com/recipe/peach-pork-tenderloin-137749)
+
+### Ingredients
+
+ - 1 cup of peaches, yellow, raw
+
+ - 14 cup of vinegar, distilled
+
+ - 2 tablespoon of mustard, prepared, yellow
+
+ - 12 teaspoon of spices, tarragon, dried
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 2 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 14 teaspoon of salt, table
+
+ - 14 teaspoon of spices, pepper, black
+
+ - 2 cup of peaches, yellow, raw
+
+### Instructions
+
+In a small bowl, stir together the preserves, vinegar, mustard and tarragon; set aside. In a large skillet, heat the oil over medium-high heat. Sprinkle the tenderloins with salt and pepper and add to the skillet. Cook for 4 to 5 minutes, turning frequently to brown on all sides. Reduce the heat to medium-low. Add the reserved preserves mixture to the skillet. Cover and simmer for 18 to 20 minutes, until no pink remains in the center of the pork. Add the peaches to the skillet, and cook just until heated through. Slice and serve the tenderloins topped with peach sauce.

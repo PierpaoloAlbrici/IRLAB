@@ -1,0 +1,29 @@
+## Whole Wheat Shrimp Alfredo
+
+[5e52eaa9cc](http://tastykitchen.com/recipes/main-courses/whole-wheat-shrimp-alfredo/)
+
+### Ingredients
+
+ - 8 ounce of wheat, durum
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 cup of cheese, parmesan, hard
+
+ - 1/4 teaspoon of salt, table
+
+ - 1/2 teaspoon of spices, pepper, black
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 1 tablespoon of spices, garlic powder
+
+ - 1 pound of crustaceans, shrimp, raw (not previously frozen)
+
+### Instructions
+
+Boil pasta according to package directions. In a medium saucepan, melt butter. Whisk in flour and cook for 2 minutes, stirring constantly. SLOWLY add in milk, stirring until smooth. Bring to a boil; reduce heat to medium and cook for 5 minutes, or until thickened. Remove from heat and stir in cheese, salt and pepper to taste. In a pan, heat olive oil over medium heat. Add garlic and cook for 2 minutes. Add shrimp and cook until pink. Do not overcook. Add shrimp to alfredo sauce and serve over pasta.

@@ -1,0 +1,19 @@
+## Blackberry Sorbet
+
+[b70c3ac8bc](http://www.epicurious.com/recipes/food/views/blackberry-sorbet-379609)
+
+### Ingredients
+
+ - 8 cup of blackberries, raw
+
+ - 1 cup of water, bottled, generic
+
+ - 1 cup of sugars, granulated
+
+ - 2 teaspoon of lemon juice, raw
+
+ - 2 teaspoon of alcoholic beverage, distilled, vodka, 80 proof
+
+### Instructions
+
+Puree the berries and remove the seeds by passing them through a food mill fitted with a fine disk into a medium bowl. Or, process the berries in a food processor fitted with the metal blade, then, using a rubber spatula, press the puree through a mesh strainer set over a medium bowl. In a small saucepan, warm the water and sugar, stirring until the sugar dissolves. Stir the sugar syrup into the blackberry puree, then mix in the lemon juice and kirsch or vodka. Taste and adjust the flavoring, adding more lemon juice and kirsch or vodka, if desired. Cover and refrigerate until thoroughly chilled. Freeze in an ice cream machine according to the manufacturers instructions. You can use frozen blackberries, thawed, in this recipe.

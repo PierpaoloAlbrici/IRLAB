@@ -1,0 +1,19 @@
+## H's scrumptious Peanut Brittle
+
+[aad64bdfbb](https://cookpad.com/us/recipes/338457-hs-scrumptious-peanut-brittle)
+
+### Ingredients
+
+ - 60 g of butter, without salt
+
+ - 180 g of sugars, granulated
+
+ - 1 tablespoon of water, bottled, generic
+
+ - 200 ml of syrup, maple, canadian
+
+ - 200 g of oil, corn, peanut, and olive
+
+### Instructions
+
+lightly grease a baking tray put the butter, water and sugar in a saucepan and heat slowly on a gentle heat, stirring all the time, until the butter melts. add the golden syrup and continue to heat and stir until the sugar dissolves. boil slowly and stir continuously. test the syrup by dropping a little in cold water. If it turns hard, it is ready. add the peanuts and keep stirring. The peanuts will have cooled the mixture down so test another drop in the cold water to see if it hardens. carefully pour into greased baking tray and leave to harden for 30 mins break with a toffeee hammer or back of a knive

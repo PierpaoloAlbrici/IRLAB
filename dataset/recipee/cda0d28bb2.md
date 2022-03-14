@@ -1,0 +1,35 @@
+## Cinnamon Banana Bread Scones
+
+[cda0d28bb2](http://tastykitchen.com/recipes/breads/cinnamon-banana-bread-scones/)
+
+### Ingredients
+
+ - 1 cup of bananas, raw
+
+ - 1/2 cup of yogurt, greek, plain, nonfat
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/4 cup of sugars, granulated
+
+ - 2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1/2 teaspoon of salt, table
+
+ - 2 teaspoon of spices, cinnamon, ground
+
+ - 1/4 cup of butter, without salt
+
+ - 1 tablespoon of butter, without salt
+
+ - 1 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 2 tablespoon of syrup, maple, canadian
+
+ - 3 cup of sugars, powdered
+
+### Instructions
+
+For the scones: Mash the bananas in a small bowl. Stir in the yogurt until smooth and set aside. Whisk together the flours, sugar, baking powder, salt and cinnamon in a large bowl. Work the butter into the dry ingredients using a pastry cutter or two forks until it is incorporated, and the mixture resembles wet sand. Pour the banana-yogurt mixture into the flour-butter mixture and stir just until all of the dry ingredients are incorporated. Line a large circular plate with wax paper and place the dough onto the plate. Spread the dough out to the edges of the plate, into a 1-inch thick disk and cover with another piece of wax paper. Place the dough into the freezer and let it sit for 30 minutes. Preheat the oven to 400 F. Line a large baking sheet with parchment paper or a Silpat liner. Peel the wax paper from the top of the scone dough and turn the plate over onto the lined baking sheet. Peel off the second layer of wax paper and slice the scones into 8 equal wedges. Pull them apart just slightly to allow room to expand while baking. Bake for 25-30 minutes until the outer edges are firm and golden brown. Remove from the oven and cut any edges that baked together. While the scones bake, make the glaze by melting the butter in a small bowl in the microwave. Pour in the milk and maple syrup and stir well. Slowly add in the powdered sugar in 1/2-cup increments until the glaze reaches a consistency that you like. I like mine a little thicker so sometimes I even use a little more than three cups. But, if you would rather have a bit of a runnier glaze, you can use less. Glaze the scones while they are still a bit warm.

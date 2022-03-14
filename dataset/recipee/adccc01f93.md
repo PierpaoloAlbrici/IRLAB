@@ -1,0 +1,25 @@
+## North Woods House Dressing
+
+[adccc01f93](http://www.food.com/recipe/north-woods-house-dressing-120365)
+
+### Ingredients
+
+ - 3 cup of salad dressing, mayonnaise, regular
+
+ - 12 cup of cream, sour, cultured
+
+ - 6 tablespoon of vinegar, red wine
+
+ - 13 cup of sugars, brown
+
+ - 14 cup of honey
+
+ - 1 teaspoon of sauce, worcestershire
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 18 teaspoon of salt, table
+
+### Instructions
+
+Mix together in large bowl, until smooth. Refrigerate up to 7 days in covered container.

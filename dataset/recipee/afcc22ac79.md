@@ -1,0 +1,17 @@
+## Chocolate Coated Marshmallows
+
+[afcc22ac79](http://www.food.com/recipe/chocolate-coated-marshmallows-117853)
+
+### Ingredients
+
+ - 2 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 34 cup of peanut butter, smooth style, without salt
+
+ - 2 tablespoon of butter, without salt
+
+ - 1 3/4 cup of nuts, pecans
+
+### Instructions
+
+Melt chocolate, peanut butter and butter. Add nuts. Dip large marshamallows into chocolate. Put on saran wrap covered cookie sheet and freeze til firm.

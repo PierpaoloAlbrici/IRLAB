@@ -1,0 +1,31 @@
+## All American Hot Dish Recipe
+
+[9ddb5aacbc](http://cookeatshare.com/recipes/all-american-hot-dish-63252)
+
+### Ingredients
+
+ - 1 pound of beef, grass-fed, ground, raw
+
+ - 1/2 cup of onions, raw
+
+ - 8 ounce of corn, sweet, white, raw
+
+ - 8 ounce of tomato sauce, canned, no salt added
+
+ - 1/4 cup of olives, ripe, canned (small-extra large)
+
+ - 4 ounce of noodles, egg, dry, unenriched
+
+ - 2 cup of water, bottled, generic
+
+ - 1 teaspoon of spices, oregano, dried
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/4 teaspoon of spices, pepper, black
+
+ - 1 cup of cheese, cheddar
+
+### Instructions
+
+Cook and stir the meat and onion in a large skillet till the meat is brown. Drain off the excess fat. Stir in the UNDRAINED corn and the rest of the ingredients. TO COOK IN A SKILLET:Heat the mix to boiling then reduce the heat and simmer, uncovered, stirring occasionally, till the noodles are tender, about 20 min. Serve warm. TO COOK IN THE OVEN:Pour the mix into an ungreased 2-qt casserole. Cover and bake in a 375 degree F. oven for 30 min, stirring occasionally. Uncover and bake till the mix thickens, about 15 min. Serve warm.

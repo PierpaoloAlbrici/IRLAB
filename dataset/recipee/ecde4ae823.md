@@ -1,0 +1,17 @@
+## Pineapple Mustard
+
+[ecde4ae823](http://www.food.com/recipe/pineapple-mustard-486298)
+
+### Ingredients
+
+ - 14 cup of pineapple, raw, all varieties
+
+ - 14 cup of mustard, prepared, yellow
+
+ - 1 tablespoon of honey
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+### Instructions
+
+Combine all ingredients in a bowl and chill until ready to serve.

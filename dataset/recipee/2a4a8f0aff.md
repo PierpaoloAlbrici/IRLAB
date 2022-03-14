@@ -1,0 +1,17 @@
+## Kosher Salt Encrusted Prime Rib Roast
+
+[2a4a8f0aff](http://allrecipes.com/recipe/kosher-salt-encrusted-prime-rib-roast/)
+
+### Ingredients
+
+ - 2 cup of salt, table
+
+ - 4 pound of pork, fresh, loin, country-style ribs, separable lean only, raw
+
+ - 1 tablespoon of spices, pepper, black
+
+ - 1 tablespoon of salt, table
+
+### Instructions
+
+Preheat oven to 210 degrees F (100 degrees C). Cover the bottom of a roasting pan with a layer of kosher salt. Place the roast, bone side down, on the salt. Season the meat with the ground black pepper and seasoning salt, then cover completely with kosher salt. Roast in preheated oven for 4 to 5 hours, or until the internal temperature of the meat reaches 145 degrees F (63 degrees C). Remove from oven and let rest for 30 minutes. This sets the juices and makes the roast easier to carve. (Note: Be sure to remove all the salt from the roast before serving.)

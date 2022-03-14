@@ -1,0 +1,19 @@
+## Hot and Sweet Butter Flavored Popcorn
+
+[bdfc94a8c7](http://www.food.com/recipe/hot-and-sweet-butter-flavored-popcorn-280706)
+
+### Ingredients
+
+ - 3-4 quart of snacks, popcorn, air-popped (unsalted)
+
+ - 3-4 tablespoon of butter, without salt
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of spices, chili powder
+
+### Instructions
+
+Add sugar, cinnamon and chili powder to the melted butter and saute until fragrant, about 1 minute (I just do this in the microwave). Pour over popcorn and toss.

@@ -1,0 +1,25 @@
+## Caramel Pecan Clusters
+
+[d6fc99ecaf](http://www.epicurious.com/recipes/food/views/caramel-pecan-clusters-393486)
+
+### Ingredients
+
+ - 5 cup of nuts, pecans
+
+ - 1 cup of cream, fluid, heavy whipping
+
+ - 1/2 cup of syrups, corn, light
+
+ - 1/2 cup of sugars, brown
+
+ - 1/3 cup of sugars, granulated
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 teaspoon of vanilla extract
+
+ - 1 pound of pascha, organic bitter-sweet dark chocolate chips, upc: 842638005022
+
+### Instructions
+
+Line 2 baking sheets with aluminum foil. On the baking sheets, arrange 60 clusters of 4 pecan halves each, with 1 inch of space between the clusters. Set aside. In a 2-quart heavy-bottomed saucepan over medium heat, combine the cream, corn syrup, brown sugar, granulated sugar, and butter. Stir with a wooden spoon or heatproof spatula until the mixture comes to a boil (5 to 8 minutes). Wash down the sides of the pan two times with a pastry brush dipped in warm water to prevent the sugar from crystallizing. Increase the heat to medium-high, place a candy thermometer in the pan, and cook the mixture until it registers 246F on the thermometer (15 to 20 minutes), stirring constantly. Remove the pan from the heat and stir in the vanilla. Pour the caramel into a 2-quart mixing bowl and stir to cool slightly (about 1 minute). Spoon a tablespoon of caramel onto the center of each pecan cluster. Let the caramel set completely at room temperature (about 30 minutes). Line 2 baking sheets with parchment or waxed paper. Melt and temper the chocolate (see pages 2530). Spoon a tablespoon of chocolate over the caramel on each turtle, or dip a turtle into the chocolate, coating it completely. With a fork or dipper, remove the turtle from the chocolate, carefully shake off the excess chocolate, and turn the turtle out onto the paper. Repeat with the remaining turtles. Let the chocolate set up at room temperature, or chill in the refrigerator for 15 minutes. In a tightly covered container wrapped in several layers of aluminum foil, the candies will keep for 1 month in the refrigerator or 2 months in the freezer. They are best eaten at room temperature. Substitute whole, unblanched almonds or walnut halves, for the pecans. Substitute milk chocolate for the bittersweet chocolate.

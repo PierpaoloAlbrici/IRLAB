@@ -1,0 +1,33 @@
+## Spelt Sunshine Muffins
+
+[6ecc80c0ff](http://www.food.com/recipe/spelt-sunshine-muffins-279832)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 1 teaspoon of cornstarch
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of salt, table
+
+ - 12 cup of orange juice, raw
+
+ - 3 tablespoon of orange juice, raw
+
+ - 1 cup of carrots, raw
+
+ - 14 cup of seeds, sunflower seed kernels, dried
+
+ - 14 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 12 cup of syrup, maple, canadian
+
+ - 1 1/2 teaspoon of egg substitute, powder
+
+### Instructions
+
+Preheat oven to 375. Heat muffin tin in the oven while you mix the ingredients. For best results, mix wet and dry ingredients seperately before combining. When combinind ingredients, do so as lightly as possible. If room allows, leave one muffin tin empty and fill with a few tablespoons of water. Bake muffins for approximately 20 minutes, depending on size of muffins and strength of oven.

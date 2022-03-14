@@ -1,0 +1,31 @@
+## Big Sur Power Bar Recipe
+
+[ebe7f7e8f9](http://www.food.com/recipe/big-sur-power-bar-recipe-283492)
+
+### Ingredients
+
+ - 1 tablespoon of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 1 cup of nuts, pecans
+
+ - 1 cup of nuts, almonds
+
+ - 23 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 1 1/4 cup of oats
+
+ - 1 1/2 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 14 cup of sugars, granulated
+
+ - 12 teaspoon of salt, table
+
+ - 2 tablespoon of beans, snap, green, raw
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Preheat oven to 350 degrees. Grease a baking pan with the coconut oil. If you like thick power bars, opt for an 8 by 8-inch pan; for thinner bars, use a 9 by 13-inch pan. On a rimmed baking sheet toast the pecans, almonds, and coconut for about 7 minutes, or until the coconut is deeply golden. Toss once or twice along the way. Mix the oats, toasted nuts, coconut, and the cereal, together in a large bowl and set aside. Combine the rice syrup, sugar, salt, espresso, and vanilla in a small saucepan over medium heat and stir constantly as it comes to a boil and thickens just a bit, about 4 minutes. Pour the syrup over the oat mixture and stir until it is evenly incorporated. Spread into the prepared pan and cool to room temperature before cutting into whatever size bars you desire.

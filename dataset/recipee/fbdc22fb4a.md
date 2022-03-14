@@ -1,0 +1,17 @@
+## Chocolate Slim Fast Slimfast Peanut Butter Smoothie Healthy
+
+[fbdc22fb4a](http://www.food.com/recipe/chocolate-slim-fast-slimfast-peanut-butter-smoothie-healthy-462416)
+
+### Ingredients
+
+ - 1 scoop of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 3 tablespoon of peanut butter, smooth style, without salt
+
+ - 6 ounce of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 6 ounce of water, bottled, generic
+
+### Instructions
+
+Combine all ingredients in a blender, blend on high until well blended.

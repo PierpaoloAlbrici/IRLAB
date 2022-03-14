@@ -1,0 +1,17 @@
+## White Rice
+
+[aef1ca0b90](http://www.food.com/recipe/white-rice-503045)
+
+### Ingredients
+
+ - 3 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 4 cup of water, bottled, generic
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 3 tablespoon of oil, canola
+
+### Instructions
+
+Heat caldero pot or any other lg. pot on medium heat. In the meantime wash rice several times with cold water and drain well. Add canola oil, rice and salt to pot. Cook for 1 minute stirring once. Add water, bring to boil stirring occasionally. When the rice has absorbed almost all of the water (should take about 10 minutes), give it a final stir and pile the rice in a mountain in the center of the pot to avoid the rice from sticking to the sides. Reduce heat to low, cover with aluminum foil and lid. DO NOT TOUCH for 20 minutes. After 20 minutes, stir the rice bringing the bottom rice to the top. Cover again and cook for 10 minutes.

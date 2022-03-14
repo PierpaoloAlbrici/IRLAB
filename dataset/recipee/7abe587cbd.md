@@ -1,0 +1,15 @@
+## Dirty Potatoes
+
+[7abe587cbd](http://www.food.com/recipe/dirty-potatoes-420237)
+
+### Ingredients
+
+ - 2 pound of potatoes, raw, skin
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 13 cup of oil, olive, salad or cooking
+
+### Instructions
+
+Preheat oven to 400F Spread the potatoes on a large rimmed baking sheet, drizzle with the oil and toss the coat. Bake for about 45 minutes, until crisp and tender. Meanwhile, in a food processor, puree the olives. Scrape the puree over the potatoes and toss well. Serve hot, or at room temperature.

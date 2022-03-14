@@ -1,0 +1,27 @@
+## Catalina Salad Dressing
+
+[5ddad041cc](http://www.food.com/recipe/catalina-salad-dressing-225717)
+
+### Ingredients
+
+ - 23 cup of oil, olive, salad or cooking
+
+ - 14 cup of sweetener, syrup, agave
+
+ - 14 cup of lemon juice, raw
+
+ - 1 tablespoon of onions, raw
+
+ - 1 teaspoon of salt, table
+
+ - 12 teaspoon of celery, raw
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 12 teaspoon of mustard, prepared, yellow
+
+ - 1 teaspoon of spices, paprika
+
+### Instructions
+
+Place all the ingredients in a blender and blend briefly. Can add water if onion is particularly strong. They can be just shaken in a jar for a less emulsified dressing. both ways are great. Lasts for a couple weeks in the fridge.

@@ -1,0 +1,27 @@
+## Suzie's Potato Casserole
+
+[cfb6e7eba5](http://www.food.com/recipe/suzies-potato-casserole-282560)
+
+### Ingredients
+
+ - 4 pound of potatoes, raw, skin
+
+ - 16 ounce of cheese, parmesan, hard
+
+ - 14 cup of butter, without salt
+
+ - 1 cup of cream, sour, cultured
+
+ - 1 cup of onions, spring or scallions (includes tops and bulb), raw
+
+ - 12 cup of parsley, fresh
+
+ - 1 pinch of spices, marjoram, dried
+
+ - 12 cup of delallo, italian seasoned breadcrumbs, upc: 072368104621
+
+ - 2-3 tablespoon of butter, without salt
+
+### Instructions
+
+Preheat oven to 400F. Cook potatoes in boiling water until softened, drain and peel potatoes. In a bowl combine potatoes, cream cheese, butter and sour cream. Mash until smooth and creamy. Mix in green onion , parsley and marjoram. Salt and pepper to taste. Butter a 9x11 pan and pour potato mixture into prepared pan. Sprinkle bread crumbs over the top of casserole and bake in 400F oven for 20-25 minutes.

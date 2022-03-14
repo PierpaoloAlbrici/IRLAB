@@ -1,0 +1,15 @@
+## Simple Cinnamon Whipped Cream
+
+[2bcc8fa2e1](http://www.food.com/recipe/simple-cinnamon-whipped-cream-194502)
+
+### Ingredients
+
+ - 300 ml of cream, whipped, cream topping, pressurized
+
+ - 12 teaspoon of spices, cinnamon, ground
+
+ - 1 tablespoon of sugars, powdered
+
+### Instructions
+
+Sprinkle cinnamon and icing sugar over cream in a bowl. Whip until soft peaks form. Serve over fruit of your choice or top that nice cup of coffee. Now what could be easier than that -- :).

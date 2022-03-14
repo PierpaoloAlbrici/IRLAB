@@ -1,0 +1,27 @@
+## Chocolate Cherry Cookies
+
+[97bf6cf7ea](http://www.food.com/recipe/chocolate-cherry-cookies-464109)
+
+### Ingredients
+
+ - 12 cup of butter, without salt
+
+ - 1 cup of sugars, granulated
+
+ - 14 cup of cherries, sweet, raw
+
+ - 4 tablespoon of cocoa, dry powder, unsweetened
+
+ - 1 tablespoon of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 3 tablespoon of syrups, grenadine
+
+ - 14 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 10 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Grind sugar with dried cherries, 2 ounces baking chocolate until it is a fine powder. Cream with butter, add grenadine syrup and chocolate syrup. Blend cocoa powder, flour, baking powder as dry ingredients and add to creaming mixture, gently stirring to combine. Chop baking chocolate into consistency of chocolate chips and add to dough. Bake 7 to 10 minutes at 350F.

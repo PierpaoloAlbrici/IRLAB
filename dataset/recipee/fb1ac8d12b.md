@@ -1,0 +1,13 @@
+## Simple Strawberry Sauce
+
+[fb1ac8d12b](http://allrecipes.com/recipe/simple-strawberry-sauce/)
+
+### Ingredients
+
+ - 2 quart of strawberries, raw
+
+ - 1/2 cup of sugars, granulated
+
+### Instructions
+
+Place the strawberries in a large bowl. Sprinkle the sugar evenly over the berries, and stir to evenly coat all of the fruit. Let stand at room temperature for 10 minutes, stirring occasionally. Cover and chill until ready to serve.

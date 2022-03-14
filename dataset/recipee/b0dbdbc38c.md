@@ -1,0 +1,25 @@
+## Soft White Potato Bread (Machine)
+
+[b0dbdbc38c](http://www.food.com/recipe/soft-white-potato-bread-machine-461643)
+
+### Ingredients
+
+ - 1 1/4 cup of water, bottled, generic
+
+ - 2 1/2 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 2 tablespoon of vital wheat gluten
+
+ - 14 cup of potatoes, raw, skin
+
+ - 2 tablespoon of sugars, granulated
+
+ - 3 cup of wheat flours, bread, unenriched
+
+ - 14 cup of oil, olive, salad or cooking
+
+ - 1 teaspoon of salt, table
+
+### Instructions
+
+Add ingredients to the bread pan in the order given. Select the white bread option and start the bread machine. Voila!

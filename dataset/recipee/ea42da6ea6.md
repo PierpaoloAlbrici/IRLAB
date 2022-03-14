@@ -1,0 +1,29 @@
+## Fruit-filled Mini Cereal Bars
+
+[ea42da6ea6](http://tastykitchen.com/recipes/appetizers-and-snacks/fruit-filled-mini-cereal-bars/)
+
+### Ingredients
+
+ - 3/4 cup of dates, deglet noor
+
+ - 3/4 cup of blueberries, raw
+
+ - 3/4 cup of strawberries, raw
+
+ - 13 cup of water, bottled, generic
+
+ - 1/4 cup of oil, olive, salad or cooking
+
+ - 1 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 1/4 cup of honey
+
+ - 1 cup of oats
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+### Instructions
+
+In a saucepan on medium-high heat, simmer the dates, blueberries, strawberries and water or juice until the fruit is soft. When done, remove from heat and blend until smooth and thick using an immersion blender. While the filling cools, make your dough. Combine butter, applesauce and honey. In another bowl, combine oats, flour and baking powder, then add to wet ingredients until mixture forms a ball of dough. Knead the dough for a few minutes, adding more flour as necessary if its too sticky. On a floured surface, take half the dough at a time and roll it out into a rectangular shape with about 1/8 thickness. Cut the dough into long strips of about a 3 width. Spread a thin layer of filling down the centre of the strips. Fold the strips over and seal the edges shut. Cut the strips into 3 bars. Place on a lightly greased baking sheet at bake at 350F for 20 minutes.

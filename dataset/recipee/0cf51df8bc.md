@@ -1,0 +1,19 @@
+## Mexican Chocolate Sauce
+
+[0cf51df8bc](http://www.food.com/recipe/mexican-chocolate-sauce-221158)
+
+### Ingredients
+
+ - 4 ounce of candies, semisweet chocolate
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 tablespoon of syrups, corn, light
+
+ - 4 tablespoon of cream, fluid, heavy whipping
+
+ - 12 teaspoon of spices, cinnamon, ground
+
+### Instructions
+
+Combine chocolate, butter and corn syrup in top of double boiler, over medium heat. Stir until chocolate is nearly melted; turn heat to low. Add cream and continue stirring until smooth. Add 1/2 t. cinnamon; add more to taste if desired. Cool slightly (or to room temp) to serve. Remaining sauce may be refrigerated up to a month and reheated on low in microwave or in double boiler. Enjoy!

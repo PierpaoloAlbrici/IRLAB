@@ -1,0 +1,23 @@
+## Fresh Peach Sundae Sauce
+
+[6f6acede53](http://www.food.com/recipe/fresh-peach-sundae-sauce-350883)
+
+### Ingredients
+
+ - 14 cup of sugars, granulated
+
+ - 2 teaspoon of cornstarch
+
+ - 18 teaspoon of spices, nutmeg, ground
+
+ - 18 teaspoon of spices, cinnamon, ground
+
+ - 13 cup of water, bottled, generic
+
+ - 2 tablespoon of orange juice, raw
+
+ - 2 cup of peaches, yellow, raw
+
+### Instructions
+
+In a 2-quart saucepan, stir together the sugar, cornstarch, nutmeg and cinnamon. Mix in the water and juice. Bring this to a boil over medium heat, stirring constantly. Reduce heat and simmer for one minute. Stir in the peaches and continue simmering for 4 to 5 minutes, stirring occasionally, until peaches soften slightly. Remove from heat. Because the peaches will continue to cook in the hot syrup, you don't want to overcook them while pan is on the heat. Serve warm or cold over ice cream.

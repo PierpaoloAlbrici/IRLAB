@@ -1,0 +1,19 @@
+## Vodka Sauce
+
+[ee8bde91d4](http://www.food.com/recipe/vodka-sauce-37716)
+
+### Ingredients
+
+ - 2 tablespoon of butter, without salt
+
+ - 14 pound of bacon, meatless
+
+ - 13 cup of alcoholic beverage, distilled, vodka, 80 proof
+
+ - 1 1/2 cup of tomato sauce, canned, no salt added
+
+ - 12 cup of cream, fluid, heavy whipping
+
+### Instructions
+
+Melt butter over moderate heat. Add bacon and cook until lightly browned. Remove pan from heat and add vodka. Return to stove and cook until reduced by half. Add tomato sauce and cream. Simmer uncovered, stirring occasionally, about 10 minutes.

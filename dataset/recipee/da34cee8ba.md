@@ -1,0 +1,17 @@
+## Balsamic Chocolate Truffles
+
+[da34cee8ba](http://tastykitchen.com/recipes/desserts/balsamic-chocolate-truffles/)
+
+### Ingredients
+
+ - 8 1/2 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1/4 cup of cream, fluid, heavy whipping
+
+ - 3 teaspoon of vinegar, balsamic
+
+ - 13 cup of cocoa, dry powder, unsweetened
+
+### Instructions
+
+Place the chopped chocolate and heavy cream in a medium bowl. Place the bowl over a pot of lightly simmering water and melt the chocolate, stirring occasionally. Pour the melted chocolate into a small, shallow bowl, and stir in the balsamic vinegar. Transfer the bowl of chocolate to the refrigerator to cool until it has hardened, about 1 hour. Remove the chocolate from the refrigerator and let it sit at room temperature until it is easily moldable. Place the cocoa powder in a small bowl. Using a cookie scoop, scoop rounds of the chocolate into the palm of your hands. Roll the chocolate into a round ball. Place the chocolate ball into the cocoa powder and roll it around to completely coat it. Repeat with the remaining chocolate. Serve and enjoy! These truffles keep best in a sealed container in a cool area. If left at room temperature, the truffles could soften. You can also keep them in the refrigerator and then allow them to sit at room temperature for about 1 hour before serving. Recipe from Giada De Laurentiis on Food Network.

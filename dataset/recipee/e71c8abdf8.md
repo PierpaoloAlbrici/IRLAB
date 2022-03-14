@@ -1,0 +1,15 @@
+## Cream Salsa Dip Recipe
+
+[e71c8abdf8](http://cookeatshare.com/recipes/cream-salsa-dip-3587)
+
+### Ingredients
+
+ - 8 ounce of cream, whipped, cream topping, pressurized
+
+ - 1/2 cup of cream, sour, cultured
+
+ - 1/2 cup of sauce, salsa, ready-to-serve
+
+### Instructions
+
+Blend softened cream cheese till smooth. Stir in 1/2 c. lowfat sour cream and 1/2 c. salsa. Cover and chill 4 hrs before serving.

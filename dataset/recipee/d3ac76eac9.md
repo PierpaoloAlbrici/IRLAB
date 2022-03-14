@@ -1,0 +1,21 @@
+## Wheat Free Dog Biscuits
+
+[d3ac76eac9](http://www.food.com/recipe/wheat-free-dog-biscuits-226270)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of oats
+
+ - 1 cup of water, bottled, generic
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 2 tablespoon of spices, parsley, dried
+
+ - 1 tablespoon of spices, cinnamon, ground
+
+### Instructions
+
+Mix all ingredients together. Let stand for about 10 minutes until batter thickens. Drop by Teaspoon onto cookie sheet lined with parchment paper. Flatten with finger diped in spelt flour. Bake at 400 F for 20 minutes. Turn off oven and leave cookies in oven over night to crisp.

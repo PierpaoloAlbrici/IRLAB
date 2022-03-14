@@ -1,0 +1,23 @@
+## North Carolina Barbecue Sandwich Sauce
+
+[d9adaa950b](http://www.food.com/recipe/north-carolina-barbecue-sandwich-sauce-55791)
+
+### Ingredients
+
+ - 14 cup of butter, without salt
+
+ - 6 tablespoon of onions, raw
+
+ - 1 1/3 cup of vinegar, cider
+
+ - 1 1/3 cup of catsup
+
+ - 1 cup of sugars, brown
+
+ - 1 teaspoon of sauce, worcestershire
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+### Instructions
+
+Melt the butter in a large, heavy saucepan over medium high heat. Add the onion and saute 3 minutes. Add the remaining ingredients and bring to a boil, stirring frequently. Reduce heat and simmer, reducing saucec to 2& 2/3 cups. Season with salt and pepper. Serve with sliced or chopped pork roast or roast beef.

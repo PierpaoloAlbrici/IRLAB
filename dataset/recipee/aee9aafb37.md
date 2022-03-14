@@ -1,0 +1,29 @@
+## Cheddar and Onion Rye Rolls
+
+[aee9aafb37](http://www.food.com/recipe/cheddar-and-onion-rye-rolls-386853)
+
+### Ingredients
+
+ - 1 1/2 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 2 cup of water, bottled, generic
+
+ - 4 cup of wheat flours, bread, unenriched
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 tablespoon of molasses
+
+ - 1 tablespoon of oil, canola
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 2 cup of cheese, cheddar
+
+ - 12 cup of onions, raw
+
+### Instructions
+
+Place the yeast and water in the bowl of a mixer and stir to completely dissolve. Let the yeast proof until foamy, about 5 minutes. Add the bread and rye flours, sugar, molasses, oil, and salt. Mix the ingredients together on low speed using the dough hook just until the dough begins to come together (it will look a little rough), about 4 minutes. Increase the speed to medium-high and mix until the dough is smooth, 2 more minutes. Add the cheese and onion and continue to mix on medium speed until the cheese and onions are evenly distributed throughout the dough, about 1 minute. Turn the dough onto a lightly floured surface. Knead by hand until the cheese and onions are completely worked into the dough. (The dough will feel rather tight.) Gather it into a smooth ball. Place in a lightly greased bowl, cover with plastic wrap, and let the dough rise in a warm place until doubled in size, about 1 hour. Fold the dough gently over on itself in three or four places, turn the dough out onto a lightly floured work surface, and cut it into 20 equal pieces. Cover the pieces and let them rest until nice and relaxed, about 15 minutes. Preheat the oven to 425 degrees F. Line 2 baking sheets with parchment paper or grease lightly. Round each piece of dough into a smooth ball and place in even rows on the prepared baking sheets. Cover and let rise until the dough springs back when lightly touched but does not collapse, 30 minutes. Make a small slit down the center of each roll with a very sharp paring knife or a razor blade. Dust the tops of the rolls lightly with rye flour, if desired. Bake until the rolls have a golden brown crust and sound hollow when thumped on the bottom, 15-18 minutes. Cool completely on racks before serving. Enjoy!

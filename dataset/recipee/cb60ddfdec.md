@@ -1,0 +1,19 @@
+## Red Jacket Mashed Potatoes
+
+[cb60ddfdec](http://www.food.com/recipe/red-jacket-mashed-potatoes-177196)
+
+### Ingredients
+
+ - 4 1/4 pound of potatoes, raw, skin
+
+ - 12 cup of cream, sour, cultured
+
+ - 1 tablespoon of la flor, steak seasoning, upc: 077636022157
+
+ - 1 1/3 cup of cream, whipped, cream topping, pressurized
+
+ - 5 ounce of butter, without salt
+
+### Instructions
+
+Wash potatoes to remove dirt. Simmer potatoes in jackets until fully cooked, approximately 30 to 35 minutes. Drain the potatoes and place in a mixing bowl with a paddle attachment. Meanwhile, melt the butter in a heavy gauged sauce pot over a medium heat. Add and blend in the whipping cream. Remove from the heat and reserve. With the mixer on low speed, gradually add the butter-cream liquid to incorporate. Add the sour cream and the steak seasoning. Whip potatoes on medium speed until mashed but some lumps remain. Do not overwhip potatoes. Garnish with fresh chopped chives and serve.

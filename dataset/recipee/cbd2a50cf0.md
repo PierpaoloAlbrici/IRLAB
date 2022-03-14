@@ -1,0 +1,13 @@
+## Beet Infused Vodka
+
+[cbd2a50cf0](http://allrecipes.com/recipe/beet-infused-vodka/)
+
+### Ingredients
+
+ - 2 pound of beets, raw
+
+ - 1 liter of alcoholic beverage, distilled, vodka, 80 proof
+
+### Instructions
+
+Place beets in a sealable container. Pour vodka over beets, seal container, and shake vigorously. Place container in a cool, dark place and store for 3 days, shaking twice per day.

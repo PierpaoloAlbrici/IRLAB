@@ -1,0 +1,15 @@
+## Beef Injection and Marinade
+
+[adba09e05c](http://www.epicurious.com/recipes/food/views/beef-injection-and-marinade-378496)
+
+### Ingredients
+
+ - 1 quart of water, bottled, generic
+
+ - 3 tablespoon of beef, grass-fed, ground, raw
+
+ - 3 tablespoon of soup, beef broth or bouillon canned, ready-to-serve
+
+### Instructions
+
+In a large stockpot over high heat, bring the water to a boil. Add the beef base and the beef au jus to the water, and stir until dissolved. Remove from the heat. If reserving for a later use, let the liquid cool; then pour it into a jug or bottle. This can be stored in the refrigerator for up to 2 weeks.

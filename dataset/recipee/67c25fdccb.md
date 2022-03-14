@@ -1,0 +1,15 @@
+## Dairy-Free and Delicious Hot Cocoa
+
+[67c25fdccb](http://www.food.com/recipe/dairy-free-and-delicious-hot-cocoa-58596)
+
+### Ingredients
+
+ - 2-3 teaspoon of cocoa, dry powder, unsweetened
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1 cup of soymilk, original and vanilla, unfortified
+
+### Instructions
+
+Pour the soy milk into a microwaveable mug and microwave on high for 1 minute. Add the cocoa powder and sugar and stir well to combine. Note: If using plain soy or rice milk, you can add 1/4 teaspoon vanilla extract. I've also added almond extract with wonderful results. The amounts can be tweaked depending on how chocolatey you like your cocoa! Enjoy!

@@ -1,0 +1,21 @@
+## Vanilla Pudding
+
+[f5e0bd37ed](https://cookpad.com/us/recipes/155636-vanilla-pudding)
+
+### Ingredients
+
+ - 500 ml of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 60 g of sugars, granulated
+
+ - 3 tablespoon of cornstarch
+
+ - 1/4 teaspoon of salt, table
+
+ - 1 teaspoon of vanilla extract
+
+ - 1 tablespoon of butter, without salt
+
+### Instructions
+
+Pour 400 ml of the milk into a small saucepan and warm over medium heat. Mix the remaining 100 ml of milk with the granulated sugar, corn starch and salt. When the milk has warmed, add in the mixture from Step 2. Stir it so it doesn't burn. Keep the heat at medium. When the mixture thickens, remove from the heat, add the vanilla essence and unsalted butter and mix well. Let it chill in the fridge to finish.

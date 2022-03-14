@@ -1,0 +1,21 @@
+## Scharffenberger Homemade Chocolate Liqueur
+
+[03fc3dd3ed](http://www.food.com/recipe/scharffenberger-homemade-chocolate-liqueur-355508)
+
+### Ingredients
+
+ - 14 cup of cocoa, dry powder, unsweetened
+
+ - 1 cup of water, bottled, generic
+
+ - 1 cup of sugars, granulated
+
+ - 1 cup of water, bottled, generic
+
+ - 1 cup of alcoholic beverage, distilled, vodka, 80 proof
+
+ - 34 cup of cream, fluid, heavy whipping
+
+### Instructions
+
+In a bowl, dissolve cocoa powder in boiling water. In a saucepan, bring sugar and water to a simmer, stirring until sugar is dissolved. Add sugar syrup to cocoa syrup. Strain through a fine-mesh sieve into a jar with a lid. Add the vodka, cover and refrigerate over night. (It will keep up to a month, but will lose potency over time. ). To serve, stir well and strain again through a fine-mesh sieve into a martini glass, 2/3 full. Top with lightly-sweetened whipped cream, or float heavy cream on top. (Hold a spoon with the bowl down and the edge almost touching the liqueur in the glass. Pour the cream slowly over the back of the spoon until a layer 1/8 to 1/4 inch deep floats on top of the liqueur.) Garnish with cocoa nibs or chocolate shavings.

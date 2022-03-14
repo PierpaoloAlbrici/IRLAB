@@ -1,0 +1,13 @@
+## Nutty Hot Cereal
+
+[5bbd7bb0b1](http://www.kraftrecipes.com/recipes/nutty-hot-cereal-50097.aspx)
+
+### Ingredients
+
+ - 1/2 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1/3 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Mix cereal and milk in microwaveable bowl. Microwave on HIGH 30 sec. for a BIG crunch or 1 min. for a little crunch.

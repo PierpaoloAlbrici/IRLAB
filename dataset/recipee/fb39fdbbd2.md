@@ -1,0 +1,21 @@
+## Sweet Potato and Squash Bake
+
+[fb39fdbbd2](http://www.food.com/recipe/sweet-potato-and-squash-bake-221401)
+
+### Ingredients
+
+ - 12 pound of sweet potato, raw, unprepared
+
+ - 2 pound of seeds, pumpkin and squash seeds, whole, roasted, without salt
+
+ - 2 teaspoon of oil, canola
+
+ - 1 tablespoon of sugars, brown
+
+ - 12 teaspoon of spices, cinnamon, ground
+
+ - 14 teaspoon of spices, nutmeg, ground
+
+### Instructions
+
+Preheat oven to 375. Coat an 8 square pan with Pam. Place sweet potatoes and squash in prepared pan. Drizzle with oil and sprinkle with sugar, cinnamon, and nutmeg; toss to coat mixture well. Bake, covered with aluminum foil, for 35 minutes, stirring occasionally.

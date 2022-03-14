@@ -1,0 +1,17 @@
+## Orange Spread
+
+[be93bfa1ee](http://www.kraftrecipes.com/recipes/orange-spread-56133.aspx)
+
+### Ingredients
+
+ - 1/4 cup of butter, without salt
+
+ - 1/2 cup of sugars, powdered
+
+ - 1 teaspoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/2 teaspoon of orange juice, raw
+
+### Instructions
+
+Beat all ingredients with electric mixer on medium speed until well blended.

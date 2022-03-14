@@ -1,0 +1,21 @@
+## Grnn Ertestuing - Norwegian - Creamed Peas
+
+[1bfdd2ddce](http://www.food.com/recipe/gr-nn-ertestuing-norwegian-creamed-peas-503559)
+
+### Ingredients
+
+ - 2 cup of peas, green, frozen, unprepared
+
+ - 1 quart of water, bottled, generic
+
+ - 3 tablespoon of butter, without salt
+
+ - 3 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 2 teaspoon of salt, table
+
+ - 1 teaspoon of sugars, granulated
+
+### Instructions
+
+Rinse the peas well and pick out any foreign objects. Place in water to soak overnight in a cool place. Let them simmer in the water they were soaked in, approximately 1 1/2 to 2 hours. Mix the flour with the butter and add to the peas and let simmer about 10 minutes longer. Add salt and sugar to taste. Please Note: * If you wish, you may add a peeled or diced carrot to the peas during the last 1/2 hour of cooking. No sugar is needed if you add a carrot.

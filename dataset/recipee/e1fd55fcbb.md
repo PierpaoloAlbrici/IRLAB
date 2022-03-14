@@ -1,0 +1,13 @@
+## Chocolate-Dipped Strawberries
+
+[e1fd55fcbb](http://www.epicurious.com/recipes/food/views/chocolate-dipped-strawberries-393540)
+
+### Ingredients
+
+ - 2 pint of strawberries, raw
+
+ - 1 pound of pascha, organic bitter-sweet dark chocolate chips, upc: 842638005022
+
+### Instructions
+
+Rinse the strawberries and let dry completely on paper towels. Line 2 baking sheets with parchment or waxed paper. Melt and temper the chocolate (see pages 2530). Hold a strawberry securely between your thumb and forefinger, and with the pointed end down, dip the berry into the chocolate, covering three-quarters of the berry. Remove the berry from the chocolate, gently shake off the excess chocolate, and place the berry on the prepared pan. Repeat with the remaining berries. Let the chocolate set up at room temperature, or chill in the refrigerator for 15 minutes. The dipped berries must be served within 4 hours of preparation; if not served immediately, refrigerate until 15 minutes before serving.

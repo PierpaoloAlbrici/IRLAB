@@ -1,0 +1,21 @@
+## Eggnog Rice Pudding
+
+[f3e96ba7fc](http://www.delish.com/recipefinder/eggnog-rice-pudding)
+
+### Ingredients
+
+ - 3/4 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 1/4 teaspoon of salt, table
+
+ - 1 1/2 cup of water, bottled, generic
+
+ - 1 quart of eggnog
+
+ - 1/4 teaspoon of spices, nutmeg, ground
+
+ - 1/2 cup of cranberries, dried, sweetened
+
+### Instructions
+
+In a large, heavy saucepan, combine the rice, salt and water; bring to a simmer over medium-high heat. Cover and reduce heat to low; simmer until water has been absorbed, about 15 minutes. Add eggnog and nutmeg; cook over medium heat, stirring continuously, for about 30 minutes, until mixture thickens. Do not overcook. Remove from heat. Stir in cranberries, if using. Serve warm, or cover and refrigerate to serve cold.

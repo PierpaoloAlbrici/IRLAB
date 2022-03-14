@@ -1,0 +1,15 @@
+## Rum Dip
+
+[ec2b6bb29b](http://www.food.com/recipe/rum-dip-179914)
+
+### Ingredients
+
+ - 12 cup of sugars, brown
+
+ - 3 ounce of alcoholic beverage, distilled, rum, 80 proof
+
+ - 2 cup of cream, sour, cultured
+
+### Instructions
+
+Mix brown sugar with rum until dissolved. Whip with sour cream. Chill thoroughly. (2-4 hours or until chilled thourgh.

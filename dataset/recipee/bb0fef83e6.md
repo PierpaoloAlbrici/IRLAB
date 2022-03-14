@@ -1,0 +1,19 @@
+## Roasted Potatoes
+
+[bb0fef83e6](http://tastykitchen.com/recipes/sidedishes/roasted-potatoes/)
+
+### Ingredients
+
+ - 1 pound of potatoes, raw, skin
+
+ - 18 cup of oil, olive, salad or cooking
+
+ - 1/4 teaspoon of spices, garlic powder
+
+ - 1/4 teaspoon of spices, pepper, red or cayenne
+
+ - 1/4 teaspoon of salt, table
+
+### Instructions
+
+Preheat your oven to 425 degrees F. Lightly spray a 9x13 glass pan with non-stick cooking spray. I use a slightly larger pan so they have some room and dont get too crowded. Wash and cut your potatoes keeping them close in size to each other. Coat with olive oil. Give it a good mix, you want to ensure every bite is nice and coated with your spice mixture. Add in your spices and mix to make sure every bite is nicely coated. Pop the pan into the oven and let them roast for 20 minutes. Do not open, flip, shake, toss or even peek at them until 20 minutes is up. At the 20 minutes mark, give em a flip, a shake and a toss. Then shut the door and give them another 20 minutes. When you hear the timer ding, youre allowed to take them out and poke and prod all you want. I usually give them another little sprinkle of salt, since I like them on the salty side.

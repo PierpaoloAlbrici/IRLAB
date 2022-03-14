@@ -1,0 +1,23 @@
+## Ginger Scented Pecans
+
+[bfb766a1ef](http://www.food.com/recipe/ginger-scented-pecans-55167)
+
+### Ingredients
+
+ - 5 cup of nuts, pecans
+
+ - 12 cup of sugars, granulated
+
+ - 2 teaspoon of salt, table
+
+ - 1 teaspoon of spices, ginger, ground
+
+ - 2 tablespoon of honey
+
+ - 2 tablespoon of water, bottled, generic
+
+ - 2 teaspoon of oil, canola
+
+### Instructions
+
+Preheat the oven to 325. Place nuts in a single layer on two rimmed baking sheets. Toast until nuts are fragrant, 10 to 15 minutes, rotating the pans halfway through cooking. Meanwhile, combine sugar, salt, and ginger in a small bowl, and set aside. Combine honey, 2 tablespoons water, and oil in a large saucepan, and bring to a boil over high heat. Reduce the heat to medium, and add roasted pecans. Cook, stirring once or twice, until all of the liquid has evaporated, 3 to 5 minutes. Transfer the mixture to a bowl, add sugar mixture, and toss until well combined. Spread nuts in a single layer on a sheet of parchment paper (or wax paper) to cool. These pecans may be kept in an airtight container at room temperature for 1 week.

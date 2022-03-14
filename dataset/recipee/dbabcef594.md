@@ -1,0 +1,25 @@
+## Coconut Rice With Peas
+
+[dbabcef594](http://cooking.nytimes.com/recipes/1014723)
+
+### Ingredients
+
+ - 2 tablespoon of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 1 cup of onions, raw
+
+ - 2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 1/2 teaspoon of salt, table
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 cup of peas, green, frozen, unprepared
+
+ - 3 tablespoon of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+### Instructions
+
+Put coconut oil in a heavy saucepan over medium heat. Add onion and let cook until softened and lightly browned, about 5 minutes. Add rice, salt and ginger, and stir to coat. Let rice sizzle for a minute, then add coconut milk and 2 1/2 cups water. Bring to a simmer, then turn heat to low and put on a tightfitting lid. Cook for 20 minutes, then turn off heat and let rest 10 minutes. Fluff rice and stir in peas. Transfer to serving bowl and garnish with toasted coconut.

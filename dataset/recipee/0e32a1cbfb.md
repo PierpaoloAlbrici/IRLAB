@@ -1,0 +1,27 @@
+## Oyster Sauce Rice
+
+[0e32a1cbfb](http://www.food.com/recipe/oyster-sauce-rice-467313)
+
+### Ingredients
+
+ - 360 ml of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 400 ml of water, bottled, generic
+
+ - 2 tablespoon of sauce, oyster, ready-to-serve
+
+ - 1 teaspoon of oil, sesame, salad or cooking
+
+ - 12 teaspoon of salt, table
+
+ - 1 cup of sauce, oyster, ready-to-serve
+
+ - 1 cup of onions, raw
+
+ - 12 cup of carrots, raw
+
+ - 12 cup of celery, raw
+
+### Instructions
+
+put first 5 ingredients in a rice cooker, then put the rest on top. turn the rice cooker on!

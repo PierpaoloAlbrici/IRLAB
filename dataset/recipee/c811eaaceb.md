@@ -1,0 +1,17 @@
+## Spinach With Sesame Seed Dressing #1 (Horenso No Goma Ae)
+
+[c811eaaceb](http://www.food.com/recipe/spinach-with-sesame-seed-dressing-1-horenso-no-goma-ae-512061)
+
+### Ingredients
+
+ - 34 pound of spinach, raw
+
+ - 3 tablespoon of seeds, sesame seeds, whole, dried
+
+ - 1 tablespoon of sugars, granulated
+
+ - 2 1/2 tablespoon of soy sauce made from soy (tamari)
+
+### Instructions
+
+Remove the stems before washing the spinach leaves. Bring a large pot of saslted water to a rolling boil and cook the spinach until it barely wilts. Drain and refresh the spinach under cold running water. Squeeze out excess moisture before chopping the spinach coarsely. Dry roast the sesame seeds in a skillet over medium-high heat and transfer them to a suribachi (Japanese grinding mortar) while still warm. Crush the sesame seeds well before adding the sugar. Continue to grind the sesame and sugar untilthe misture is quite pasty, then add the soy sauce and blend well. You can also do this in a blender or food processor, but will have to double or tripe the quantities to get the volume necessary to engage the blades of your machine; store excess in a tightly sealed jar in the refrigerator. Toss the chopped spinach in the dressing and serve chilled or at room temperature.

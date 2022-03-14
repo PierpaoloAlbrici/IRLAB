@@ -1,0 +1,19 @@
+## California Raisin Peanut Butter Spread
+
+[5ae23baec7](http://www.food.com/recipe/california-raisin-peanut-butter-spread-255812)
+
+### Ingredients
+
+ - 34 cup of raisins, seeded
+
+ - 12 cup of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 2 tablespoon of honey
+
+ - 2 teaspoon of spices, cinnamon, ground
+
+ - 1 cup of peanut butter, smooth style, without salt
+
+### Instructions
+
+Measure raisins and apple juice into small saucepan and bring to a boil; reduce heat to medium and simmer 8 to 10 minutes or until raisins have absorbed all of the juice. Stir in honey and cinnamon; cool slightly. Stir in peanut butter. Spread onto graham crackers, bread, mini-bagels apple slices or celery sticks. Variations: Raisin Peanut Butter Griddlers -- Smear Peanut Butter Spread on whole wheat bread, top with banana slices and grill in a skillet. Raisin Peanut Butter Tortilla Roll-Ups: Wrap California Raisin Peanut Butter Spread and banana slices in a who;e wheat tortilla and serve in pinwheel slices. Note: Parents do the prep work, and let the kids assemble the sandwiches or wraps.

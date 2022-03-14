@@ -1,0 +1,17 @@
+## Bounty Balls (Just Like Eating a Bounty) Copycat
+
+[7d8afc64cd](http://www.food.com/recipe/bounty-balls-just-like-eating-a-bounty-copycat-227707)
+
+### Ingredients
+
+ - 200 g of milk, canned, condensed, sweetened
+
+ - 100 g of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 8 ounce of sugars, powdered
+
+ - 8 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Mix the condensed milk and coconut together. Add enough icing sugar to form a stiff dough which will form into balls. Form small balls and leave to set on a tray until all the mixture is used. Place the tray into the refrigerator to set (overnight is best). Coat the ball in melted chocolate and leave to set. This is just like eating Bounty bars. Time is setting time; minimum would be 4 hours.

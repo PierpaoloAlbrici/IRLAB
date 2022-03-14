@@ -1,0 +1,17 @@
+## The Sheehy Earthshake
+
+[bdd200ffee](http://www.food.com/recipe/the-sheehy-earthshake-93036)
+
+### Ingredients
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 2 scoop of ice creams, vanilla
+
+ - 1 scoop of ice creams, chocolate
+
+ - 1 tablespoon of syrup, maple, canadian
+
+### Instructions
+
+Place all the ingredients in a blender. Blend until smooth.

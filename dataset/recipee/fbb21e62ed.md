@@ -1,0 +1,21 @@
+## Broccoli and Cherry Tomato Salad
+
+[fbb21e62ed](http://www.food.com/recipe/broccoli-and-cherry-tomato-salad-32511)
+
+### Ingredients
+
+ - 4 cup of broccoli, raw
+
+ - 1 pint of cherries, sweet, raw
+
+ - 2 teaspoon of mustard, prepared, yellow
+
+ - 3 tablespoon of rice vinegar, upc: 4979435030332
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 2 tablespoon of spices, oregano, dried
+
+### Instructions
+
+Steam broccoli until just crisp-tender, about 3 minutes. Transfer to large bowl and cool. Add tomatoes. Place mustard in small bowl. Gradually whisk in vinegar, then oil. Mix in oregano. Add to salad and toss to coat. Season with salt and pepper. Can be made 6 hours ahead. Cover, chill.

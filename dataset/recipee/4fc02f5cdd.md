@@ -1,0 +1,17 @@
+## Chocolate Fondue
+
+[4fc02f5cdd](http://www.food.com/recipe/chocolate-fondue-206190)
+
+### Ingredients
+
+ - 6 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 1/2 cup of sugars, granulated
+
+ - 1 cup of cream, fluid, heavy whipping
+
+ - 12 cup of margarine, regular, 80% fat, composite, stick, without salt
+
+### Instructions
+
+Combine all ingredients, melt and serve. Can be reheated. Great with strawberries, bananas, marshmallows, cheesecake, pound cake, angel food cake, and brownies.

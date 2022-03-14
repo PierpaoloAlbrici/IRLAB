@@ -1,0 +1,19 @@
+## Date, Almond and Coconut Truffles
+
+[2ddbc95fa5](http://tastykitchen.com/recipes/desserts/date-almond-and-coconut-truffles/)
+
+### Ingredients
+
+ - 1 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 2 cup of dates, deglet noor
+
+ - 2 cup of nuts, almonds
+
+ - 2 tablespoon of honey
+
+ - 1/2 cup of seeds, sesame seeds, whole, dried
+
+### Instructions
+
+1. Set aside half of the coconut in a shallow bowl. 2. Combine all the other ingredients in a food processor and pulse, scraping the sides as necessary until a soft dough is formed. 3. Shape the mixture into bite-sized balls. 4. Roll the balls in the set aside coconut. Notes : 1. The recipe works best with juicy, plump dates. If your dates are little on the drier side, soak them in hot water for 30 minutes. 2. Adjust the honey quantity according to taste and sweetness of the dates. 3. Store leftover truffles in an airtight container in the fridge for up to 2 weeks.

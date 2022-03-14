@@ -1,0 +1,27 @@
+## Cranberry and Apple Crumble
+
+[5c8cfe5ce1](http://www.food.com/recipe/cranberry-and-apple-crumble-83174)
+
+### Ingredients
+
+ - 12 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 cup of sugars, granulated
+
+ - 14 cup of sugars, brown
+
+ - 14 cup of butter, without salt
+
+ - 6 cup of apples, raw, with skin
+
+ - 1 cup of cranberries, dried, sweetened
+
+ - 13 cup of orange juice, raw
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1 tablespoon of cornstarch
+
+### Instructions
+
+Preheat oven to 375 degrees. Lightly spoon flour into a dry measuring cup; level with a knife. Combine flour, 1/4 cup granulated sugar, brown sugar and butter in a food processor; pulse 10 times or until mixture resembles coarse meal. Combine apple and cranberries in a large bowl. Combine juice and remaining ingredients; pour over apple mixture. Toss well. Spoon apple mixture into a 2-quart baking dish. Sprinkle with flour mixture. Bake at 375 degrees for 40 minutes or until bubbly and golden brown. Serve warm.

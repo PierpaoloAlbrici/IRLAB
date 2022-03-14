@@ -1,0 +1,21 @@
+## Orange Frozen Yogurt for Ice Cream Maker
+
+[f8ba27bfa5](http://www.food.com/recipe/orange-frozen-yogurt-for-ice-cream-maker-321812)
+
+### Ingredients
+
+ - 13 cup of sugars, granulated
+
+ - 1 cup of water, bottled, generic
+
+ - 13 cup of syrups, corn, light
+
+ - 1 cup of yogurt, greek, plain, nonfat
+
+ - 1 cup of orange juice, raw
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Combine water and sugar in sauce pan and heat up and stir until sugar is completely dissolved; cool. Add remaining ingredients and mix together until smooth. Add to ice cream maker and freeze according to the manufacturer's directions.

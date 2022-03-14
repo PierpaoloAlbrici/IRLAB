@@ -1,0 +1,15 @@
+## Fiber One Chocolate Haystacks
+
+[aeef5aadbd](http://www.food.com/recipe/fiber-one-chocolate-haystacks-280107)
+
+### Ingredients
+
+ - 8 1/8 ounce of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 12 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 2 teaspoon of peanut butter, smooth style, without salt
+
+### Instructions
+
+Melt 1 bag of good semi-sweet chocolate chips in microwave in a large bowl on high for about 2 minutes or until melted (stirring occasionally). Once melted, mix in 1 sleeve of Fiber One cereal (8.1 oz). Once well blended, use a tablespoon to scoop out rounded cookies onto a cookie sheet lined with wax paper. Refrigerate until set (about 1/2 hour). Can freeze portions until ready to eat.

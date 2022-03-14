@@ -1,0 +1,19 @@
+## Pop It Up: A Cinnamon-Sugar Popcorn
+
+[bdfbc2e008](http://www.foodrepublic.com/recipes/pop-it-up-a-cinnamon-sugar-popcorn-recipe/)
+
+### Ingredients
+
+ - 8 cup of snacks, popcorn, air-popped (unsalted)
+
+ - 1/4 cup of sugars, granulated
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 1/2 teaspoon of salt, table
+
+ - 4 tablespoon of butter, without salt
+
+### Instructions
+
+Pour the popcorn into a large bowl and remove any unpopped kernels. In a small bowl, mix together the sugar, cinnamon and salt. Drizzle the butter over the popcorn. Sprinkle with the cinnamon sugar and gently toss to coat. Serve immediately.

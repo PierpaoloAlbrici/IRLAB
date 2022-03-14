@@ -1,0 +1,19 @@
+## Sherri's Herbed Carrots
+
+[de62bf59eb](http://www.food.com/recipe/sherris-herbed-carrots-267769)
+
+### Ingredients
+
+ - 1 pound of carrots, raw
+
+ - 2 tablespoon of butter, without salt
+
+ - 1 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 1 pinch of spices, rosemary, dried
+
+### Instructions
+
+Heat oven to 400. pare carrots; cook in 1" water, covered about 8 minute. Drain and arrange in 1 1/2 quart casserole dish and dot with butter. Sprinkle with salt and pepper. Crumble rosemary over top Bake covered about 25 min or until tender.

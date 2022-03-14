@@ -1,0 +1,25 @@
+## Famous Fido Honey Party Cookies
+
+[bf9ba200cd](http://www.food.com/recipe/famous-fido-honey-party-cookies-120158)
+
+### Ingredients
+
+ - 1 cup of shortening, vegetable, household, composite
+
+ - 1 teaspoon of butter, without salt
+
+ - 14 cup of egg, white, raw, fresh
+
+ - 14 cup of honey
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 teaspoon of spices, garlic powder
+
+ - 14 cup of cheese, cheddar
+
+ - 14 cup of seeds, sesame seeds, whole, dried
+
+### Instructions
+
+* for even crunchier cookies, use only 1/2 cup shortening and 1/2 tsp unsalted butter. I also use cheddar cheese powder, but finely grated cheddar cheese works as well. In large bowl, beat shortening and butter with electic mixer on high speed till creamy. Add egg whites and honey, beat till smooth. Beat in food coloring, if desired, Combine flour, garlic powder and cheese. Beat into shortening mixture. Gather dough into a ball. Divide it in half -- then in fourths and so on until you have 36 piees. Flour your hands and roll pieces into balls.of get fancy and use pastry bag to shape cookies.I sometimes do this and get different shapes.grandchildren like to do this. Place them on an ungreased cookie sheet, then use a floured fork to gently flatten them in a crisscross design. Sprinkle them with sesame seeds, or Baco's, (aritifically flavored bacon bits).if desired. Bake in a preheated 325* oven for about 10 minutes, till firm -- To make the cookies, crunchier, after baking we turned off the heat in the oven about 5 minutes, first running a spatula under each one so they wouldn't stick to the pan.

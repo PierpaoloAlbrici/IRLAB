@@ -1,0 +1,19 @@
+## Red Pepper Couscous
+
+[cdfd5d465f](http://www.myrecipes.com/recipe/red-pepper-couscous-1)
+
+### Ingredients
+
+ - 1 cup of couscous, dry
+
+ - 2 teaspoon of oil, olive, salad or cooking
+
+ - 1/2 cup of onions, raw
+
+ - 1/2 cup of peppers, sweet, green, raw
+
+ - 1/4 teaspoon of salt, table
+
+### Instructions
+
+Cook couscous according to package directions. Heat olive oil in a skillet over medium-high heat. Add onion, bell pepper, and salt; saute 7 minutes. Toss with couscous.

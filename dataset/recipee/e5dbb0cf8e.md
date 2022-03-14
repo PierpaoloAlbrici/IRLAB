@@ -1,0 +1,21 @@
+## Baklava - No Honey
+
+[e5dbb0cf8e](http://www.food.com/recipe/baklava-no-honey-506341)
+
+### Ingredients
+
+ - 1 pound of phyllo dough
+
+ - 2 pound of nuts, walnuts, english
+
+ - 1 cup of sugars, granulated
+
+ - 1 pound of butter, without salt
+
+ - 2 tablespoon of water, bottled, generic
+
+ - 16 ounce of syrups, corn, light
+
+### Instructions
+
+MIx finely chooped walnuts, sugar and 1 heaping T rosewater set aside. Render butter and skim off curdle. Butter cookie sheets with curdle. Lay 1 sheet dough & butter entirely. Place another sheet over this and butter the ends. Mound nut mixture along the short end of the dough and roll up. Crimp the ends of the roll and place on cookie sheet Place rolls tightly against each other When sheet is full, butter the tops. Diagonal cut while raw. Bake at 300 degrees for 1 hour (brown). Syrup - In a sauce pan, mix 1 bottle of white Karo syrup lite with a little water and 1 heaping T rosewater. Boil. Apply to bakliva while hot. Let cooll completely before storinn in air tight plastic container. May be frozen.

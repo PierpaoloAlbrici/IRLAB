@@ -1,0 +1,27 @@
+## Indian Pudding
+
+[3defddefa2](http://www.food.com/recipe/indian-pudding-318816)
+
+### Ingredients
+
+ - 1 quart of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 13 cup of molasses
+
+ - 13 cup of sugars, brown
+
+ - 12 cup of cornmeal, degermed, unenriched, yellow
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 1 teaspoon of spices, ginger, ground
+
+ - 3 tablespoon of butter, without salt
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Mix scalded milk and molasses. Mix sugar, corn meal, salt, cinnamon, and ginger, and add to the scalded milk and molasses mixture. Cook slowly, stirring constantly, about 5 minutes. Pour into a prepared baking dish and dot with butter. Bake 1 hour in a 300 degrees F oven. Remove from oven, stir in one cup of milk, and bake for 2 hours longer. Serve warm. (I usually top this with vanilla ice cream. ).

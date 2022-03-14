@@ -1,0 +1,13 @@
+## Eurista's No-Shake Popcorn Method
+
+[a30fdcea71](http://www.food.com/recipe/euristas-no-shake-popcorn-method-411503)
+
+### Ingredients
+
+ - 13 cup of corn, sweet, white, raw
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+Place corn and oil in a 3 quart saucepan. I use paper towel, wide enough to cover the pan and a splatter screen over the paper towel to cover my pot. This lets the steam escape and controls splattering from the oil. Heat oil and one or two kernels. When kernels pop, add remaining corn, remove from heat and count to thirty. I count one one thousand, two one thousand, etc. Place pan back on hob. When popping slows to almost nothing, it's ready. Pax.

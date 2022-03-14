@@ -1,0 +1,23 @@
+## Ranch Dressing Mix
+
+[c00dea39df](http://www.food.com/recipe/ranch-dressing-mix-131447)
+
+### Ingredients
+
+ - 1 teaspoon of salt, table
+
+ - 4 teaspoon of spices, garlic powder
+
+ - 4 teaspoon of spices, pepper, black
+
+ - 4 teaspoon of sugars, granulated
+
+ - 4 teaspoon of spices, paprika
+
+ - 4 teaspoon of parsley, fresh
+
+ - 1 cup of onions, raw
+
+### Instructions
+
+Mix. Store in jar or covered bowl. Makes 1 cup mix. To use:. Salad dressing: Add 1 tablespoon mix to 1 cup mayo and 1 cup buttermilk. Mix and use. Dip: add 1 tablespoon mix to 8 ounces yogurt. Use with vegetables.

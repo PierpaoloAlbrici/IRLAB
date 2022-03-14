@@ -1,0 +1,25 @@
+## Sweet and Spicy French Dressing
+
+[bbcf0d1fb9](http://allrecipes.com/recipe/sweet-and-spicy-french-dressing/)
+
+### Ingredients
+
+ - 1 cup of oil, olive, salad or cooking
+
+ - 3/4 cup of sugars, granulated
+
+ - 1/3 cup of vinegar, distilled
+
+ - 1/3 cup of catsup
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of celery, raw
+
+ - 1 teaspoon of spices, paprika
+
+ - 1 tablespoon of onions, raw
+
+### Instructions
+
+Blend vegetable oil, sugar, vinegar, ketchup, salt, celery seed, paprika, and dried minced onion in a blender until smooth.

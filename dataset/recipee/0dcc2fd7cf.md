@@ -1,0 +1,21 @@
+## Low Sodium Speedy Barbecue Sauce
+
+[0dcc2fd7cf](http://www.food.com/recipe/low-sodium-speedy-barbecue-sauce-132323)
+
+### Ingredients
+
+ - 1 cup of vinegar, cider
+
+ - 34 cup of tomatoes, red, ripe, raw, year round average
+
+ - 3 tablespoon of sugars, brown
+
+ - 1 tablespoon of sauce, worcestershire
+
+ - 2 teaspoon of spices, pepper, black
+
+ - 2 tablespoon of spices, garlic powder
+
+### Instructions
+
+Combine all the ingredients in a medium saucepan and bring to a boil over medium heat. Reduce the heat and simmer for 20 minutes, stirring frequently. Remove from heat and cool slightly before using.

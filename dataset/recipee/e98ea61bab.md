@@ -1,0 +1,19 @@
+## Dark English Toffee
+
+[e98ea61bab](http://www.food.com/recipe/dark-english-toffee-336516)
+
+### Ingredients
+
+ - 1 1/3 cup of sugars, granulated
+
+ - 14 cup of water, bottled, generic
+
+ - 2 tablespoon of syrup, maple, canadian
+
+ - 1 tablespoon of molasses
+
+ - 7 tablespoon of butter, without salt
+
+### Instructions
+
+Combine all of the ingredients in a heavy-bottom saucepan over medium heat. Heat slowly, stirring until the butter has melted and the sugar has dissolved. Increase the heat and bring the mixture to a boil. Cover and gently boil for around 2 minutes. Remove the cover and continue to boil, stirring occasionally, until the mixture reaches 300F on a candy thermometer; it should take 10-15 minutes. Pour the mixture into a buttered 6x6-inch pan, let the toffee cool to the touch and score it into 1-inch squares. Let the toffee cool completely; turn it out onto a board, bread the toffee into pieces and warp them individually in squares of waxed paper. Store at room temperature in an airtight container.

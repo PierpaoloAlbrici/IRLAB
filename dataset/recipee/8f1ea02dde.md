@@ -1,0 +1,25 @@
+## Best Oven Hash Recipe
+
+[8f1ea02dde](http://cookeatshare.com/recipes/best-oven-hash-22238)
+
+### Ingredients
+
+ - 1 1/2 cup of beef, grass-fed, ground, raw
+
+ - 1 cup of potatoes, raw, skin
+
+ - 1/2 cup of onions, raw
+
+ - 1/4 cup of parsley, fresh
+
+ - 1 teaspoon of salt, table
+
+ - 1 dash of spices, pepper, black
+
+ - 2 teaspoon of sauce, worcestershire
+
+ - 2/3 cup of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+Mix above ingredients and put in 1 qt casserole. Mix 1/3 c. lightly crushed corn flakes with 1 Tbsp. melted butter and sprinkle on top. Bake at 350 degrees for 30 min or possibly till heated through. Makes 4 servings. Top with a poached egg.

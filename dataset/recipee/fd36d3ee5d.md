@@ -1,0 +1,21 @@
+## Mediterranean Fresh Tuna Salad Recipe
+
+[fd36d3ee5d](http://cookeatshare.com/recipes/mediterranean-fresh-tuna-salad-51550)
+
+### Ingredients
+
+ - 1 1/4 cup of fresh red onions, upc: 888670013229
+
+ - 3 tablespoon of vinegar, red wine
+
+ - 6 tablespoon of oil, olive, salad or cooking
+
+ - 1/4 cup of oil, olive, salad or cooking
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/4 teaspoon of spices, pepper, black
+
+### Instructions
+
+For Dressing: Place onion and vinegar in small bowl. Gradually whisk in both oils in thin steady stream. Add in salt and pepper. For Salad: Cook all beans in large pot of boiling, salted water till crisp- tender, about 4 min. Drain. Refresh with cool water, drain, and pat dry. Prepare barbecue (high heat) or possibly preheat broiler. Combine beans, fennel, watercress, Radicchio, and olives in large bowl. Brush 2 Tbsp. dressing over one side of tuna steaks. Season with salt and pepper. Grill seasoned side down 2 min. Brush fish with 2 more Tbsp. dressing; season with salt and pepper. Turn steaks and cook to desired doneness, 2 min for medium rare. Cut into fourths. Add in remaining dressing to salad and toss. Adjust seasoning. Divide among 4 large plates. Top each with 2 tuna pcs. Garnish with chives and serve.

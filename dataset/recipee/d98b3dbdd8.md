@@ -1,0 +1,29 @@
+## Thin, Crisp Gingerbread Cookies
+
+[d98b3dbdd8](http://www.food.com/recipe/thin-crisp-gingerbread-cookies-446302)
+
+### Ingredients
+
+ - 3 cup of wheat flour, white, all-purpose, unenriched
+
+ - 34 cup of sugars, brown
+
+ - 1 tablespoon of spices, cinnamon, ground
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 12 teaspoon of spices, cloves, ground
+
+ - 12 teaspoon of salt, table
+
+ - 34 teaspoon of leavening agents, baking soda
+
+ - 12 tablespoon of butter, without salt
+
+ - 34 cup of molasses
+
+ - 2 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+In food processor workbowl fitted with steel blade, process flour, sugar, cinnamon, ginger, cloves, salt, and baking soda until combined,. about 10 seconds. Scatter butter pieces over flour mixture and process until mixture is sandy and resembles very fine meal, about 15 seconds. With machine running, gradually add molasses and milk; process until dough is evenly moistened and forms soft mass, about 10 seconds. Alternatively, in bowl of standing mixer fitted with paddle attachment, stir together flour, sugar, cinnamon, ginger, cloves, salt, and baking soda at low speed until combined, about 30 seconds. Stop mixer and add butter pieces; mix at medium-low speed until mixture is sandy and resembles fine meal, about 1 1/2 minutes. Reduce speed to low and, with mixer running, gradually add molasses and milk; mix until dough is evenly moistened, about 20 seconds. Increase speed to medium and mix until thoroughly combined, about 10 seconds. Scrape dough onto work surface; divide into quarters. Working with one portion of dough at a time, roll 1/8-inch thick between two large sheets of parchment paper. Leaving dough sandwiched between parchment layers, stack on cookie sheet and freeze until firm, 15 to 20 minutes. Alternatively, refrigerate dough 2 hours or overnight. Adjust oven racks to upper- and lower-middle positions and heat oven to 325 degrees. Line two cookie sheets with parchment paper. Remove one dough sheet from freezer; place on work surface. Peel off top parchment sheet and gently lay it back in place. Flip dough over; peel off and discard second parchment layer. Cut dough into 5-inch gingerbread people or 3-inch gingerbread cookies, transferring shapes to parchment-lined cookie sheets with wide metal spatula, spacing them 3/4 inch apart; set scraps aside. Repeat with remaining dough until cookie sheets are full. Bake cookies until slightly darkened and firm in centers when pressed with finger, about 15 to 20 minutes, rotating cookie sheets front to back and switching positions top to bottom halfway through baking time. Do not overbake. Cool cookies on sheets 2 minutes, then remove with wide metal spatula to wire rack; cool to room temperature. Gather scraps; repeat rolling, cutting, and baking in steps 2 and 4. Repeat with remaining dough until all dough is used.

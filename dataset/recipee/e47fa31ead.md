@@ -1,0 +1,25 @@
+## Lettuce Soup--Mexican Recipe
+
+[e47fa31ead](http://www.food.com/recipe/lettuce-soup-mexican-recipe-182296)
+
+### Ingredients
+
+ - 4 cup of lettuce, cos or romaine, raw
+
+ - 1 cup of water, bottled, generic
+
+ - 2 1/2 cup of soup, chicken broth or bouillon, dry
+
+ - 12 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 tablespoon of onions, raw
+
+ - 1 tablespoon of butter, without salt
+
+ - 14 teaspoon of spices, nutmeg, ground
+
+ - 1 1/2 cup of croutons, plain
+
+### Instructions
+
+Cook lettuce in water for a few minutes until the lettuce is tender. (Do not throw away the water). Heat onions in the butter until sauteed, then add to the lettuce mixture. Add chicken broth, evaporated milk and nutmeg to the lettuce mixture, then add salt and pepper to taste. Lower the heat immediately and simmer for 10-15 minutes. Serve topped with browned and buttered croutons (approximately 1/4 cup per serving).

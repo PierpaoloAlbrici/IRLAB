@@ -1,0 +1,21 @@
+## Honey-Mustard Green Beans
+
+[0bbb428dcb](http://www.food.com/recipe/honey-mustard-green-beans-409382)
+
+### Ingredients
+
+ - 4 teaspoon of honey
+
+ - 4 teaspoon of mustard, prepared, yellow
+
+ - 4 teaspoon of vinegar, cider
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 34 teaspoon of salt, table
+
+ - 2 pound of beans, snap, green, raw
+
+### Instructions
+
+In a large bowl, whisk together honey, mustard, vinegar, olive oil and salt; set aside. Bring a large pot of water to a boil. Add green beans and cook until just tender, about 5 minutes. (You could steam them instead if desired.) Drain well and pat dry with paper towels. Toss green beans in honey-mustard mixture and serve warm or at room temperature.

@@ -1,0 +1,23 @@
+## Spinach with Raisins and Pine Nuts
+
+[d3bd7cc2b2](http://www.myrecipes.com/recipe/spinach-with-raisins-pine-nuts)
+
+### Ingredients
+
+ - 1/4 cup of raisins, seeded
+
+ - 1 teaspoon of oil, olive, salad or cooking
+
+ - 1 cup of onions, raw
+
+ - 2 pound of spinach, raw
+
+ - 1/4 cup of nuts, pine nuts, dried
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/4 teaspoon of spices, pepper, black
+
+### Instructions
+
+1. Place raisins in a small bowl; cover with hot water. Let stand 5 minutes or until plump; drain.2. Heat oil in a Dutch oven over medium heat. Add onion to pan; cook 10 minutes or until tender, stirring occasionally. Add about one-fourth of spinach to pan; cook 3 minutes or until spinach wilts, stirring occasionally. Repeat procedure 3 times with remaining spinach. Stir in raisins, nuts, salt, and pepper.

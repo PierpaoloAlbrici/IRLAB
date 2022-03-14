@@ -1,0 +1,25 @@
+## Cranberry-Walnut Scones
+
+[cd1ac3d88f](http://www.food.com/recipe/cranberry-walnut-scones-33747)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 cup of sugars, granulated
+
+ - 2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 2 tablespoon of butter, without salt
+
+ - 12 cup of cranberries, dried, sweetened
+
+ - 14 cup of nuts, walnuts, english
+
+ - 1 cup of milk, buttermilk, fluid, cultured, lowfat
+
+ - 1 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Preheat oven to 425 degrees. Spray baking sheet with cooking spray. In large bowl stir together flour, sugar, baking powder and salt, put in butter. Stir in cranberries and walnuts. Make a well in center and stir in buttermilk. Dough should be sticky. Pat into 8" round. Cut each round into 8 triangles. Brush top with milk and sprinkle with maple sugar. Bake for 14 to 18 minutes.

@@ -1,0 +1,13 @@
+## Sour Cream
+
+[efb2eaf32f](http://www.food.com/recipe/sour-cream-376316)
+
+### Ingredients
+
+ - 2 cup of cream, whipped, cream topping, pressurized
+
+ - 2 tablespoon of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+Combine cream with buttermilk in hot, clean glass jar with a lid. Cover tightly and shake gently to thoroughly mix. Let stand in a warm place till thickened (24-48 hours). Store, covered in refrigerator. Stir before serving. Use within three weeks.

@@ -1,0 +1,15 @@
+## Honey Orange Butter
+
+[9dd3ea5cc2](http://www.food.com/recipe/honey-orange-butter-346922)
+
+### Ingredients
+
+ - 12 cup of butter, without salt
+
+ - 13 cup of honey
+
+ - 1 teaspoon of orange juice, raw
+
+### Instructions
+
+Remove butter from refrigerator and allow to soften at room temperature, about 10 minutes. Cream butter, honey, and orange peel in small bowl. Transfer to serving dish. Store in refrigerator, covered. Serve at room temperature. *Note: Some separation between the butter and honey will occur after setting up in the refrigerator. This honey is still yummy on warm bread!

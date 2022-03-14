@@ -1,0 +1,15 @@
+## Strawberry Chocolate Milkshake
+
+[bfe6f696cf](http://www.food.com/recipe/strawberry-chocolate-milkshake-185789)
+
+### Ingredients
+
+ - 1 cup of strawberries, raw
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 3 scoop of ice creams, chocolate
+
+### Instructions
+
+Blend together all the ingredients.

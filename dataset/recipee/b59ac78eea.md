@@ -1,0 +1,21 @@
+## Easy Pork Brine
+
+[b59ac78eea](http://allrecipes.com/recipe/easy-pork-brine/)
+
+### Ingredients
+
+ - 1 cup of sugars, brown
+
+ - 1/2 cup of salt, table
+
+ - 1 tablespoon of mustard, prepared, yellow
+
+ - 1 tablespoon of spices, garlic powder
+
+ - 1 cup of vinegar, cider
+
+ - 2 cup of water, bottled, generic
+
+### Instructions
+
+Mix brown sugar, salt, mustard powder, and garlic powder in a large bowl. Pour in cider vinegar; stir until sugar and salt have dissolved. Add water; stir until well combined.

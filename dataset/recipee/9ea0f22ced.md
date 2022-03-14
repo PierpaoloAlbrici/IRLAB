@@ -1,0 +1,21 @@
+## Apple Honey Glaze
+
+[9ea0f22ced](http://allrecipes.com/recipe/apple-honey-glaze/)
+
+### Ingredients
+
+ - 1 1/2 cup of honey
+
+ - 1 cup of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 1/3 cup of molasses
+
+ - 1/4 cup of sauce, barbecue
+
+ - 1 tablespoon of spices, cinnamon, ground
+
+ - 1 teaspoon of spices, nutmeg, ground
+
+### Instructions
+
+Combine honey, apple juice, molasses, barbeque sauce, cinnamon, and nutmeg together in a saucepan; bring to a soft boil. Reduce heat and simmer, stirring occasionally, until glaze is smooth and thickened, about 15 minutes.

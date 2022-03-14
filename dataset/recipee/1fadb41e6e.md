@@ -1,0 +1,23 @@
+## Carolina Delights
+
+[1fadb41e6e](http://allrecipes.com/recipe/carolina-delights/)
+
+### Ingredients
+
+ - 2 cup of sugars, granulated
+
+ - 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/4 cup of cocoa, dry powder, unsweetened
+
+ - 1/2 cup of butter, without salt
+
+ - 1 teaspoon of vanilla extract
+
+ - 1/2 cup of peanut butter, smooth style, without salt
+
+ - 3 cup of oats
+
+### Instructions
+
+In a saucepan combine the sugar, milk, cocoa, and margarine. Cook over medium high heat, stirring constantly, bring mixture to a boil and boil for 1 minute. Remove from the heat and stir in the vanilla, peanut butter, and quick cooking oats. Drop spoonfuls of batter onto sheets of greased waxed paper. Let cool. Store cookies in an airtight container.

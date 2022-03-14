@@ -1,0 +1,21 @@
+## Rustic Country Loaf
+
+[c9f7bab29f](http://www.food.com/recipe/rustic-country-loaf-460397)
+
+### Ingredients
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 34 teaspoon of leavening agents, baking soda
+
+ - 34 teaspoon of salt, table
+
+ - 1 tablespoon of butter, without salt
+
+ - 1 3/4 cup of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+Preheat oven to 190C Sprinkle a teaspoon of the plain flour over the centre of a baking tray and set aside. Put 2 teaspoons of plain flour into a small bowl and set bowl aside. Meanwhile, put the remaining plain flour, wholemeal flour, baking soda and salt into a large bowl and mix well with your hands to combine. Add the butter, breaking it up into small pieces with your fingers, and mix it into the flour mixture until combined. Make a well in the centre of the flour-butter mixture and add the buttermilk. Slowly add the buttermilk into the mixture with your hands until a rough ball forms. Turn the mixture out on a lightly floured surface and form into a neat ball (without kneading). Transfer the dough to the centre of the baking tray and press gently to form a 20cm-wide round. Using a sharp knife, slash a cross 1cm deep across the entire top of the loaf and then dust the top of the loaf with the reserved flour. Bake until the bread is light golden and a tap on the bottom of the loaf sounds hollow, about 60 minutes. N.B. Oven temperatures do vary so keep an eye on its baking -- some oven's may take less and other's longer. Wrap the bread in a clean tea-towel, and allow to cool for about 2 hours. Slice and serve at room temperature or toasted, with a generous dollop of butter.

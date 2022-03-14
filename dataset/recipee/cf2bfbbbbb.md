@@ -1,0 +1,13 @@
+## Sourdough Starter
+
+[cf2bfbbbbb](http://online-cookbook.com/goto/cook/rpage/000787)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of water, bottled, generic
+
+### Instructions
+
+Mix 1 cup (225 ml) of flour with 1 cup (225 ml) of water. Leave it covered with a light cloth in a warm place. As soon as it starts to "boil" (ferment) it is ready to use in bread. The more you use it, the better your bread will turn out. When you want more, just add flour and water to get it as full as you want.

@@ -1,0 +1,35 @@
+## Girl Power Bars
+
+[fbebf18f7d](http://tastykitchen.com/recipes/special-dietary-needs/girl-power-bars/)
+
+### Ingredients
+
+ - 1 cup of oats
+
+ - 1/4 cup of nuts, walnuts, english
+
+ - 1 tablespoon of seeds, flaxseed
+
+ - 2 tablespoon of wheat germ, crude
+
+ - 1 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1/4 cup of cherries, sweet, raw
+
+ - 2 tablespoon of raisins, seeded
+
+ - 2 tablespoon of blueberries, raw
+
+ - 1/4 cup of nuts, almonds
+
+ - 1/4 cup of sugars, brown
+
+ - 1/4 cup of honey
+
+ - 1/2 teaspoon of vanilla extract
+
+ - 18 teaspoon of salt, table
+
+### Instructions
+
+1. Lightly grease an 8x8 pan with cooking spray. 2. Combine oats, walnuts, flaxseeds, wheat germ, cereal, and dried fruit in a large bowl. 3. Combine almond butter, sugar, honey, vanilla, and salt in a small saucepan. Heat over medium-low, stirring frequently until lightly bubbling, 2-5 minutes. 4. Immediately pour almond butter mixture over oat mixture and carefully mix with a rubber spatula or spoon. 5. Gently press mixture into prepared pan, smoothing the top evenly. Refrigerate until firm, about 30 minutes. Cut into 10 bars.

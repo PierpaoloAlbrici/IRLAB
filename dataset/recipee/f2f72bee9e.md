@@ -1,0 +1,23 @@
+## Mothers Sesame Cheese Strips (Straws)
+
+[f2f72bee9e](http://www.food.com/recipe/mother-s-sesame-cheese-strips-straws-327710)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 teaspoon of salt, table
+
+ - 13 cup of oil, olive, salad or cooking
+
+ - 18 teaspoon of oil, sesame, salad or cooking
+
+ - 2 tablespoon of water, bottled, generic
+
+ - 2 tablespoon of seeds, sesame seeds, whole, dried
+
+ - 34 cup of cheese, cheddar
+
+### Instructions
+
+Preheat oven to 375 degrees F. Lightly oil/spray cookie sheets. Blend together flour, cheese, salt, and oils in a medium-size bowl until crumbly. Add ice water gradually to form a soft dough. Roll the dough between 2 sheets of wax paper to form an approximate 15x12-inch rectangle. Remove top pieces of paper. Place greased, lightly floured cookie sheet over dough. Invert and remove second piece of paper. Sprinkle sesame seeds over dough. Roll lightly with a rolling pin to press the seeds into the dough. Cut into 1x1-inch strips and transfer to pan-sprayed cookie sheets (larger pieces may also be made, but make sure to check their cooking times so that they are baked to your preferred texture). Bake the strips at 375 degrees F for 15 minutes. Remove from oven and sheet and allow to cool on wire rack. You can add a bit of cayenne pepper powder to the dough if you like them a little spicy like traditional Southern Cheese Straws, too.

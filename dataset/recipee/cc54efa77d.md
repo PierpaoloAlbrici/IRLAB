@@ -1,0 +1,15 @@
+## Honey Butter
+
+[cc54efa77d](http://www.food.com/recipe/honey-butter-67078)
+
+### Ingredients
+
+ - 12 cup of butter, without salt
+
+ - 13 cup of honey
+
+ - 1 dash of spices, cinnamon, ground
+
+### Instructions
+
+Beat butter and honey together until creamy. Sprinkle with cinnamon. Serve at room temperature.

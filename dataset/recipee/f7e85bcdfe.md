@@ -1,0 +1,21 @@
+## 15 Minute Cheeseburger Rice
+
+[f7e85bcdfe](http://www.food.com/recipe/15-minute-cheeseburger-rice-53481)
+
+### Ingredients
+
+ - 1 pound of beef, grass-fed, ground, raw
+
+ - 1 3/4 cup of water, bottled, generic
+
+ - 23 cup of catsup
+
+ - 1 tablespoon of mustard, prepared, yellow
+
+ - 2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 1 cup of cheese, cheddar
+
+### Instructions
+
+Brown ground beef in large skillet; drain. Add water, ketchup and mustard. Bring to a boil. Stir in 2 cups uncooked Minute rice. Sprinkle with 1 cup shredded cheddar cheese. Cover; cook on low heat 5 minutes.

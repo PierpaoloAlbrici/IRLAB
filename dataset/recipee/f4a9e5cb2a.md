@@ -1,0 +1,15 @@
+## Homemade Condensed Milk Made in a Pot
+
+[f4a9e5cb2a](https://cookpad.com/us/recipes/148252-homemade-condensed-milk-made-in-a-pot)
+
+### Ingredients
+
+ - 150 ml of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 2 tablespoon of sugars, granulated
+
+ - 2 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Add the ingredients into a pot, mix well with a whisk, then turn on the heat. Keep stirring until it starts to thicken. It will be done in about 10 minutes depending on the strength of the heat. When cooled, it will thicken, so don't keep cooking until it becomes really thick! When cooled, stirand keep in the fridge. I made it with soy milk. It's also delicious with a slightly different flavor There is also tea flavor. You could use it as 1 cream for a short cake 2 blancmange 3in coffee jello 4 pour over shaved ice 5 icing 6Spread on a toast 7 Custard cream, etc.

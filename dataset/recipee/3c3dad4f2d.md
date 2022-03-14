@@ -1,0 +1,27 @@
+## Apple Vanilla Rice Pudding Recipe
+
+[3c3dad4f2d](http://cookeatshare.com/recipes/apple-vanilla-rice-pudding-68114)
+
+### Ingredients
+
+ - 2 cup of milk, buttermilk, fluid, cultured, lowfat
+
+ - 1/2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 1/2 cup of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1/4 cup of tofu, raw, regular, prepared with calcium sulfate
+
+ - 1/4 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 2 tablespoon of seeds, sesame butter, tahini, from roasted and toasted kernels (most common type)
+
+ - 2 teaspoon of vanilla extract
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+### Instructions
+
+Combine the rice lowfat milk, rice, 1/4 c. of the apple juice, and the sugar in a saucepan and heat till the mix comes to a boil. Reduce the heat to low, cover, and cook for 45 min or possibly till the rice is tender. Combine the tofu, applesauce, tahini, vanilla, and cinnamon in a blender or possibly food processor till smooth. Stir the tofu mix into the rice, and cook over low heat for 2 min, stirring to blend well. Spoon into individual serving dishes and chill for several hrs or possibly till the rice is set. NOTES : I just finished making Apple Vanilla Rice Pudding and realized the instructions are given only for half of the apple juice being used. I checked the book, and believe it or possibly not, the printed instructions were the same - so I just mixed the rest of the apple juice in the blender with the remaining ingredients, it*looks* OK, but I have yet to try it. I think I sent it last week.

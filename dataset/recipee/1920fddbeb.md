@@ -1,0 +1,13 @@
+## Basic Dried Beans
+
+[1920fddbeb](http://www.food.com/recipe/basic-dried-beans-49960)
+
+### Ingredients
+
+ - 1 pound of beans, snap, green, raw
+
+ - 10 cup of water, bottled, generic
+
+### Instructions
+
+Note: Lentils, split peas and black-eyed peas do not need to be soaked. Pick through the beans, discarding any discolored or shriveled beans or any foreign matter. Rinse well. Traditional Slow Soak: In a 5-quart saucepan, cover 1 pound dried beans with 10 cups water. Cover tightly and refrigerate 6-8 hours or overnight. Drain and rinse the beans. Hot Soak: In a 5-quart saucepan, bring 10 cups water to a boil. Add 1 pound dried beans and return to a boil. Remove from the heat; cover tightly and set aside at room temperature 2-3 hours. Drain and rinse the beans. Quick Soak: In a 5-quart saucepan, bring 10 cups water to a boil. Add 1 pound dried beans and return to a boil; let boil 2-3 minutes. Cover tightly and set aside at room temperature 1 hour. Drain and rinse the beans. Gas-Free Soak: (The best method for gas-free beans, developed by the California Dry Bean Advisory Board.) In a 5-quart sauce- pan, place 1 pound of beans in 10 or more cups of boiling water; boil for 2-3 minutes, cover and set aside overnight. By morning, 75 to 90 percent of the indigestible sugars will have dissolved into the soaking water. Drain, then rinse the beans thoroughly before cooking them. COOKING BEANS: When cooking beans, do not add salt or acidic ingredients, like vinegar, tomatoes or juice- which slow the cooking substantially; add these ingredients when the beans are just tender. Cooking times vary with the types of beans used but also may vary with their age. Beans are done when they can be easily mashed between two fingers or with a fork. Always test a few beans in case they have not cooked evenly. Return the soaked, rinsed beans to the 5-quart saucepan. Cover the beans with 3 times their volume of water. Add herbs or spices (not salt), as desired. Bring to a boil; reduce the heat and simmer gently, uncovered, stirring occasionally, until tender (the time will depend on the type of bean, but start checking after 45-60 minutes). Do not boil them since this will break the skins. Check the level of the water and add more if it gets low. When the beans are tender, drain and use in recipes; or for later use, immerse them in cold water until cool, then drain well and freeze in 1- to 2-cup packages. One pound of dried beans will yield about 5 or 6 cups cooked beans. PRESSURE COOKING: This is one of the quickest ways to cook beans. After you've soaked 1/2 pound of beans, place them in a 4-quart pressure cooker with 4 cups water. Cook at 15 pounds pressure following the manufacturer's directions for the type of legume you are cooking.

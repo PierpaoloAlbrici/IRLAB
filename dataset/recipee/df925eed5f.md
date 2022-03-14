@@ -1,0 +1,23 @@
+## Baked Honey Mustard Chicken
+
+[df925eed5f](http://www.food.com/recipe/baked-honey-mustard-chicken-158453)
+
+### Ingredients
+
+ - 2 pound of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 13 cup of honey
+
+ - 14 cup of mustard, prepared, yellow
+
+ - 1 tablespoon of lemon juice, raw
+
+ - 3 tablespoon of butter, without salt
+
+ - 18 teaspoon of salt, table
+
+ - 14 teaspoon of spices, rosemary, dried
+
+### Instructions
+
+Preheat oven to 325. Arrange chicken pieces in a shallow baking dish. In a saucepan over med-low heat, combine remaining ingredients. Heat and stir until melted and well-blended. Pour over chicken pieces. Bake at 325 for about 60-75 minutes (or until done); basting chicken occasionally.

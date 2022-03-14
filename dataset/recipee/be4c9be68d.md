@@ -1,0 +1,23 @@
+## Maple Spiced Nuts from King Arthur Flour
+
+[be4c9be68d](http://www.food.com/recipe/maple-spiced-nuts-from-king-arthur-flour-490684)
+
+### Ingredients
+
+ - 14 cup of butter, without salt
+
+ - 1 pound of nuts, walnuts, english
+
+ - 14 cup of sugars, brown
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of salt, table
+
+ - 3 tablespoon of syrup, maple, canadian
+
+### Instructions
+
+In large skillet over medium high heat, melt butter and add nuts. Cook, stirring occasionally for 3-4 minutes, until nuts are fragrant and beginning to toast. Add remaining ingredients, stirring until sugar begins to melt. Lower heat to medium and cook for another 3-4 minutes, until nuts are nicely caramelized around the outside. Transfer nuts to a parchment lined baking sheet to cool, stirring periodically so they don't clump.

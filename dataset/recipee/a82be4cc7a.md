@@ -1,0 +1,17 @@
+## Self-Rising Cornmeal
+
+[a82be4cc7a](http://www.food.com/recipe/self-rising-cornmeal-60322)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 3 cup of cornmeal, degermed, unenriched, yellow
+
+ - 2 tablespoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 2 teaspoon of salt, table
+
+### Instructions
+
+Mix all ingredients well. Store in tightly covered can or container. Use in any recipe calling for self-rising cornmeal.

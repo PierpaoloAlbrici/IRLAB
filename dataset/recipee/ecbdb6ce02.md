@@ -1,0 +1,19 @@
+## Quick and Easy Scones
+
+[ecbdb6ce02](https://recipeland.com/recipe/v/quick-easy-scones-33998)
+
+### Ingredients
+
+ - 4 tablespoon of butter, without salt
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 tablespoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 pinch of salt, table
+
+ - 3/4 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Preheat oven to 450F (230C). Cut the butter or margarine into the flour and add baking powder and salt. Slowly mix in the milk until the mixture forms a dough. Divide into about 12 heaps and place on a floured cookie sheet. Bake for about 12 minutes, or until slightly browned. Serve warm with butter and jam.

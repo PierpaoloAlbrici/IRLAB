@@ -1,0 +1,29 @@
+## Vegan Low Fat Low Sugar Chocolate Cake
+
+[66afbc0a8f](http://www.food.com/recipe/vegan-low-fat-low-sugar-chocolate-cake-226296)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 13 cup of cocoa, dry powder, unsweetened
+
+ - 1 cup of bananas, raw
+
+ - 12 cup of pineapple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 1 tablespoon of syrup, maple, canadian
+
+ - 1 pinch of salt, table
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 2 teaspoon of vinegar, distilled
+
+ - 100 ml of yogurt, greek, plain, nonfat
+
+ - 1 tablespoon of jams and preserves, apricot
+
+### Instructions
+
+Mix all the dry ingredients together in a mixing bowl. Add the banana, the pineapple juice, maple syrup and salt. Beat well to make a smooth batter. Add the vinegar and stir. It will begin to froth. Pour into an oiled pound loaf tin. Bake at 190 degrees (medium oven) for 20 minutes. Turn out onto a wire rack and leave to cool. Slice the cake lengthways and spread both halves with the yoghurt. Then top one half with the jam. Sandwich back together.

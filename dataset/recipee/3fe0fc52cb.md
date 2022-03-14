@@ -1,0 +1,17 @@
+## Lemon Asparagus and Carrots
+
+[3fe0fc52cb](https://recipeland.com/recipe/v/lemon-asparagus-carrots-39135)
+
+### Ingredients
+
+ - 1/2 pound of carrots, raw
+
+ - 8 ounce of asparagus, raw
+
+ - 1 dash of spices, pepper, black
+
+ - 18 cup of lemon juice, raw
+
+### Instructions
+
+Wash, trim, and peel small carrots. Place carrots in a steamer basket above boiling water. Cover and steam about 15 minutes or until crisp- tender. Rinse carrots in cold water, drain. Meanwhile, cook frozen asparagus spears according to package. Rinse asparagus in cold water, drain. Cover and chill drained carrots and asparagus. To serve, arrange carrots and asparagus on a platter. Sprinkle with a little lemon juice and lemon pepper.

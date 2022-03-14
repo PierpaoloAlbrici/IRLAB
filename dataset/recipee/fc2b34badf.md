@@ -1,0 +1,21 @@
+## Honey Sesame Tuiles
+
+[fc2b34badf](http://www.foodnetwork.com/recipes/honey-sesame-tuiles-recipe.html)
+
+### Ingredients
+
+ - 1/4 pound of butter, without salt
+
+ - 1 cup of sugars, powdered
+
+ - 1/4 cup of honey
+
+ - 1/2 cup of egg, white, raw, fresh
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/8 cup of seeds, sesame seeds, whole, dried
+
+### Instructions
+
+Cream butter and sugar using a paddle. Add honey and mix. Add whites and mix. Add flour and mix. A proper tuile batter is smooth. On a fiberglass mat or parchment paper, spread tuile batter evenly and thinly into 5 to 6-inch rounds by using a wet finger, circling outward. Sprinkle with sesame seeds. Bake at 300 degrees until tuiles are brown. Check often. Tuiles can be shaped when they are still hot. Place them in muffin tins or ramekins to form a cup shape. Work quickly.

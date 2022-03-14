@@ -1,0 +1,23 @@
+## Hungarian Spiced Cheese Dip
+
+[4b4bf4edc7](http://www.food.com/recipe/hungarian-spiced-cheese-dip-8010)
+
+### Ingredients
+
+ - 1 cup of cheese, cottage, creamed, large or small curd
+
+ - 2 teaspoon of spices, paprika
+
+ - 1 teaspoon of spices, caraway seed
+
+ - 1 teaspoon of capers, canned
+
+ - 12 teaspoon of mustard, prepared, yellow
+
+ - 12 cup of cream, sour, cultured
+
+ - 2 tablespoon of onions, spring or scallions (includes tops and bulb), raw
+
+### Instructions
+
+Strain the cottage cheese in a colander to remove the excess water then cream in a blender or food processor or with an electric mixer. Put into a bowl and add the paprika, caraway seeds, capers, mustard and green onion. Blend all of the ingredients together until almost smooth. Blend in the sour cream. Cover and chill. SUGGESTED DIPPERS: Chicken, String Beans, Cherry Tomatoes, Chili Peppers

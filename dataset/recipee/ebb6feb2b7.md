@@ -1,0 +1,17 @@
+## Diy Coconut Milk
+
+[ebb6feb2b7](http://www.food.com/recipe/diy-coconut-milk-420311)
+
+### Ingredients
+
+ - 2 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 4 cup of water, bottled, generic
+
+ - 1 teaspoon of vanilla extract
+
+ - 6 drop of sweetener, herbal extract powder from stevia leaf
+
+### Instructions
+
+Soak coconut in water for 1-2 hours (do not discard water). In a Vita-Mix, combine coconut, water, vanilla and stevia and process on highest speed. Strain liquid through a fine mesh paint strainer bag, discarding solids. Serve.

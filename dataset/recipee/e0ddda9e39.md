@@ -1,0 +1,17 @@
+## Apricot Cookie Frosting
+
+[e0ddda9e39](http://allrecipes.com/recipe/apricot-cookie-frosting/)
+
+### Ingredients
+
+ - 1 cup of sugars, granulated
+
+ - 1 tablespoon of butter, without salt
+
+ - 1/2 cup of apricots, dried, sulfured, uncooked
+
+ - 3/4 cup of nuts, pecans
+
+### Instructions
+
+Mix together sugar, butter or margarine and apricot preserves until well blended.

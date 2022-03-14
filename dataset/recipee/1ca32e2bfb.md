@@ -1,0 +1,15 @@
+## Basic Steamed Brown Rice Recipe
+
+[1ca32e2bfb](http://www.chowhound.com/recipes/basic-steamed-brown-rice-29186)
+
+### Ingredients
+
+ - 2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 4 cup of water, bottled, generic
+
+ - 1 teaspoon of salt, table
+
+### Instructions
+
+Place the rice in a fine-mesh strainer and rinse under cold water until the water runs clear. Place the measured water in a medium saucepan with a tightfitting lid and bring to a boil over high heat. Add the rice and salt (if using), stir to incorporate, cover, and reduce the heat to low. Simmer undisturbed until the rice is tender, about 45 to 50 minutes. Remove from heat and let sit covered to steam for 10 minutes more. Fluff with a fork and serve.

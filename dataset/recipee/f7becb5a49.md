@@ -1,0 +1,17 @@
+## World Class Mashed Potatoes
+
+[f7becb5a49](http://www.foodnetwork.com/recipes/world-class-mashed-potatoes-recipe.html)
+
+### Ingredients
+
+ - 2 pound of potatoes, raw, skin
+
+ - 14 ounce of butter, without salt
+
+ - 1 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 3/4 ounce of salt, table
+
+### Instructions
+
+Wash the potatoes with the skins on. Leaving them whole, place them in a large pot and fill with cold water, covering them over with 1 inch of water. Add salt and cook the potatoes for 25 to 30 minutes until fork tender. Drain and quickly peel the potatoes while they are still warm. Once they are peeled, pass them through a ricer. Add 1/2 of the butter and stir until completely incorporated. Using a tamis or fine metal mesh sifter, pass the potato puree once more to create a smooth texture. Place the potato puree in a pot and add the remaining butter. Over low heat, add the milk slowly, continuously mixing. Finish, by adding a pinch of salt for flavor. To serve, simply place on a plate as a side dish with your favorite meat and vegetables.

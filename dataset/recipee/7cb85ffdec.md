@@ -1,0 +1,15 @@
+## George Washington's Mother's Ferry Farm Maple-Honey Sauce
+
+[7cb85ffdec](http://www.food.com/recipe/george-washingtons-mothers-ferry-farm-maple-honey-sauce-412740)
+
+### Ingredients
+
+ - 1 cup of honey
+
+ - 12 cup of syrup, maple, canadian
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+### Instructions
+
+Heat the honey and the maple syrup together slowly over hot water. Remove from heat and blend in 1 teaspoon cinnamon. Pour into a small pitcher or jug and serve warm over waffles or pancakes.

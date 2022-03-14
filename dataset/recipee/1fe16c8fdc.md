@@ -1,0 +1,21 @@
+## Spice Garam Masala
+
+[1fe16c8fdc](http://www.food.com/recipe/spice-garam-masala-318135)
+
+### Ingredients
+
+ - 5 teaspoon of spices, coriander seed
+
+ - 1 tablespoon of spices, cumin seed
+
+ - 1 tablespoon of corn, sweet, white, raw
+
+ - 1 teaspoon of spices, cloves, ground
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 1 teaspoon of spices, cardamom
+
+### Instructions
+
+Mix together.

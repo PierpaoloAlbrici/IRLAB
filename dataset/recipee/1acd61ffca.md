@@ -1,0 +1,21 @@
+## Herb Mix for Rice
+
+[1acd61ffca](http://www.food.com/recipe/herb-mix-for-rice-229299)
+
+### Ingredients
+
+ - 5 tablespoon of beef, grass-fed, ground, raw
+
+ - 3 tablespoon of spices, parsley, dried
+
+ - 2 tablespoon of onions, raw
+
+ - 4 teaspoon of spices, basil, dried
+
+ - 2 teaspoon of spices, thyme, dried
+
+ - 1 teaspoon of spices, garlic powder
+
+### Instructions
+
+Combine ingredients and store in an airtight container for up to 1 year. To prepare rice: In a saucepan, bring 2 cups water and 3 tablespoons herb mix to a boil. Stir in 1 cup uncooked long grain rice. Reduce heat; cover and simmer for 15 minutes or until rice is tender and liquid is absorbed.

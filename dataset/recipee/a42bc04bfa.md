@@ -1,0 +1,35 @@
+## Healthier Zucchini Bread
+
+[a42bc04bfa](http://www.food.com/recipe/healthier-zucchini-bread-321762)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of salt, table
+
+ - 2 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of spices, nutmeg, ground
+
+ - 12 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 1 1/2 cup of sugars, granulated
+
+ - 2 cup of squash, summer, zucchini, includes skin, raw
+
+ - 34 cup of oil, olive, salad or cooking
+
+ - 3 teaspoon of egg substitute, powder
+
+ - 3 tablespoon of water, bottled, generic
+
+### Instructions
+
+Preheat oven to 350. Combine all dry ingredients, sifting if necessary. In a small bowl, whisk together egg substitute and hot water until smooth and no lumps. In a medium bowl, combine sugar, zucchini, oil, and egg mixture until all sugar is incorporated. Pour wet mixture into dry and mix until combined. You may need to add a little water. Spoon into a greased loaf pan and bake for about 30 minutes, or until fork comes out clean.

@@ -1,0 +1,27 @@
+## Cinnamon Raisin Bread
+
+[de3fb7c6e4](http://www.food.com/recipe/cinnamon-raisin-bread-366450)
+
+### Ingredients
+
+ - 1 tablespoon of lemon juice, raw
+
+ - 1 1/2 cup of water, bottled, generic
+
+ - 2 tablespoon of margarine, regular, 80% fat, composite, stick, without salt
+
+ - 4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 cup of sugars, brown
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 3 teaspoon of spices, cinnamon, ground
+
+ - 2 1/4 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 34 cup of raisins, seeded
+
+### Instructions
+
+soak rasins in hot water for 5 minutes, then drain thouroughly. add all ingredients in order listed (except the raisins - add those at the beep). bake on 2 lb loaf, light or med crust, sweet settings on machine.

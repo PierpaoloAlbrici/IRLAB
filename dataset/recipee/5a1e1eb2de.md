@@ -1,0 +1,23 @@
+## Apple Cinnamon Mug Cake (Microwave)
+
+[5a1e1eb2de](http://www.food.com/recipe/apple-cinnamon-mug-cake-microwave-494482)
+
+### Ingredients
+
+ - 3 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 1 tablespoon of sugars, brown
+
+ - 1 tablespoon of sugars, granulated
+
+ - 14 teaspoon of spices, cinnamon, ground
+
+ - 1 tablespoon of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 1 tablespoon of water, bottled, generic
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+Mix dry ingredients in an 8-oz. microwave safe mug. Add applesauce, water and vegetable oil, and mix well. Microwave on high for one minute or until done. (Times may vary. ).

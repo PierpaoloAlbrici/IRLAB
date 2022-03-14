@@ -1,0 +1,13 @@
+## Homemade Pomegranate Syrup
+
+[badd32dfeb](http://www.food.com/recipe/homemade-pomegranate-syrup-194644)
+
+### Ingredients
+
+ - 2 cup of pomegranate juice, bottled
+
+ - 1 cup of sugars, granulated
+
+### Instructions
+
+Prepare fresh pomegranate juice:. For 2 cups of juice, cut 46 large pomegranates in half and juice them with a citrus reamer or juicer. Pour mixture through a cheesecloth-lined strainer or sieve. Set the juice aside. Combine juice and 1 cup of sugar in a small saucepan; bring to a boil. Reduce heat and simmer about 20 minutes until reduced to 1 cup, stirring frequently. Remove from heat and cool. Store in a tightly closed jar or container in the refrigerator for up to 2 months.

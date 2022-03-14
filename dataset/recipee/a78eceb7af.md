@@ -1,0 +1,17 @@
+## Peanut Butter Rice Krispies Treats
+
+[a78eceb7af](http://www.food.com/recipe/peanut-butter-rice-krispies-treats-147355)
+
+### Ingredients
+
+ - 1 cup of sugars, brown
+
+ - 1 cup of syrups, corn, light
+
+ - 1 cup of peanut butter, smooth style, without salt
+
+ - 6 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+### Instructions
+
+Measure out the Rice Krispies in a large bowl (I use the largest I can set my hands on). Combine brown sugar and corn syrup in small saucepan and cook on medium heat until mixture begins to bubble on top. Take off heat and stir in the peanut butter. Add mixture to Rice Krispies and stir until all the Krispies are coated, then pour into 9x11 or 9x13 baking dish. Smooth over with a spatula, let set for an hour or so and tada! (You might run a knife through warm water to help cut nice, clean squares).

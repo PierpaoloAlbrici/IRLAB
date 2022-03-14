@@ -1,0 +1,13 @@
+## Chocolate-Peanut Butter Sundae Sauce
+
+[d16dcba0aa](http://www.food.com/recipe/chocolate-peanut-butter-sundae-sauce-70803)
+
+### Ingredients
+
+ - 1 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 12 cup of peanut butter, smooth style, without salt
+
+### Instructions
+
+In a saucepan, mix together the chocolate syrup and peanut butter. Cook over low heat, stirring, until blended and smooth. Serve warm or cool over ice cream, cakes, or sundaes.

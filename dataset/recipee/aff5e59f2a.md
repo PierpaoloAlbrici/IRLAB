@@ -1,0 +1,21 @@
+## Sour Cream and Horseradish Asparagus
+
+[aff5e59f2a](http://allrecipes.com/recipe/sour-cream-and-horseradish-asparagus/)
+
+### Ingredients
+
+ - 1 pound of asparagus, raw
+
+ - 1 1/2 cup of cream, sour, cultured
+
+ - 1 1/2 tablespoon of horseradish, prepared
+
+ - 1 teaspoon of spices, garlic powder
+
+ - 1 1/2 tablespoon of butter, without salt
+
+ - 1/2 cup of bread crumbs, dry, grated, plain
+
+### Instructions
+
+In a large covered pot, steam asparagus 3 to 4 minutes, or until tender but still bright green. Remove from the pot and arrange in a single layer in a 9x13 inch pan. In a medium bowl, mix together sour cream, horseradish, and garlic salt; spoon over asparagus. In a small bowl, stir together the melted butter and bread crumbs; sprinkle over the asparagus. Preheat the oven's broiler and adjust the oven rack so that it is about 3 inches from the heat source. Broil asparagus 1 to 2 minutes, until the topping is toasted, taking care to watch closely to prevent over browning.

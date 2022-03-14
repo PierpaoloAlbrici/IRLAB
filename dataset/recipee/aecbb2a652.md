@@ -1,0 +1,13 @@
+## Make Your Own Holi Colour
+
+[aecbb2a652](http://www.food.com/recipe/make-your-own-holi-colour-167903)
+
+### Ingredients
+
+ - 1 tablespoon of spices, turmeric, ground
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+### Instructions
+
+Mix the turmeric and flour together. Add talcum powder and mix well. Now, if you want green colour Holi colour, use henna or mehendi powder, either on its own or mixed with flour(depends on how light or dark you want it). If you want saffron colour, put flowers of marigold in the water and boil them thoroughly. Leave the water untouched overnight. Next day, add it to the flour, powder and turmeric mixture. If you want red colour, prepare a paste of hibiscus flowers mixed with a little water and add it to the flour mixture. Alternatively, you may use powdered hibsicus flowers added with some water(made into paste) and then added to the flour mixture. Alternatively, you may use beetroot boiled in water and left overnight and used the next day(add it to the flour mixture next day). Enjoy!

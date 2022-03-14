@@ -1,0 +1,21 @@
+## Homemade Graham Crackers
+
+[4fade6d05f](http://allrecipes.com/recipe/homemade-graham-crackers/)
+
+### Ingredients
+
+ - 2 3/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1/2 teaspoon of spices, cinnamon, ground
+
+ - 1/2 cup of butter, without salt
+
+ - 2/3 cup of sugars, brown
+
+ - 1/2 cup of water, bottled, generic
+
+### Instructions
+
+Preheat oven to 350 degrees F (175 degrees C). Grease a large baking sheet. Whisk together the flour, baking powder, and cinnamon in a bowl; set aside. Use an electric mixer to beat the butter and brown sugar together until light. Stir in the flour mixture. Slowly pour in the water; stir until dough is formed. Refrigerate dough for 30 minutes. On a well floured board, roll dough to between 1/8 and 1/4 inch thick. Use a knife or cookie cutter to cut dough into squares or rectangles. Transfer crackers to prepared baking sheet. Bake in preheated oven until light brown, 11 to 13 minutes. Remove crackers from oven. Use a fork to pierce multiple holes on tops of crackers.

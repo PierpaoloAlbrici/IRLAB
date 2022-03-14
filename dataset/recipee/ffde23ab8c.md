@@ -1,0 +1,27 @@
+## Light Rye
+
+[ffde23ab8c](http://www.food.com/recipe/light-rye-27246)
+
+### Ingredients
+
+ - 34 cup of water, bottled, generic
+
+ - 1 1/2 cup of wheat flours, bread, unenriched
+
+ - 12 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 tablespoon of sugars, granulated
+
+ - 34 teaspoon of salt, table
+
+ - 34 tablespoon of butter, without salt
+
+ - 2 teaspoon of cornmeal, degermed, unenriched, yellow
+
+ - 1 teaspoon of spices, caraway seed
+
+ - 1 1/4 teaspoon of leavening agents, yeast, baker's, active dry
+
+### Instructions
+
+Load ingredients in the order give. Bake with regular, rapid or delayed time bake cycle.

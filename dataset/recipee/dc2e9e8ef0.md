@@ -1,0 +1,15 @@
+## Whole Wheat Macrobiotic Cookies
+
+[dc2e9e8ef0](https://cookpad.com/us/recipes/169921-whole-wheat-macrobiotic-cookies)
+
+### Ingredients
+
+ - 100 g of wheat flour, white, all-purpose, unenriched
+
+ - 4 tablespoon of sugars, granulated
+
+ - 4 tablespoon of oil, safflower, salad or cooking, high oleic (primary safflower oil of commerce)
+
+### Instructions
+
+Preheat your oven to 180C. Combine the ingredients together and mix well. Form the dough into balls with the palms of your hands, and place on parchment paper. Bake for 10-15 minutes. Adjust the heat as necessary while keeping an eye on them. For Christmas, I used icing and chocolate to draw on the cookies. Here, I formed them into 2 cm balls and baked them. Once they cooled, I sifted powdered sugar on them to make them look like snowballs. I also formed them into rilakkuma for my child.

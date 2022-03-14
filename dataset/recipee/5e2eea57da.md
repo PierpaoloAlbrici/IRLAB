@@ -1,0 +1,35 @@
+## Sugar Snap Pea Salad With Ginger Soy Dressing
+
+[5e2eea57da](http://www.food.com/recipe/sugar-snap-pea-salad-with-ginger-soy-dressing-151503)
+
+### Ingredients
+
+ - 2 teaspoon of oil, sesame, salad or cooking
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 1 tablespoon of spices, garlic powder
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+ - 1 tablespoon of sauce, oyster, ready-to-serve
+
+ - 1 tablespoon of soy sauce made from soy (tamari)
+
+ - 1 tablespoon of sugars, granulated
+
+ - 18 teaspoon of salt, table
+
+ - 1 pound of sugars, granulated
+
+ - 12 cup of carrots, raw
+
+ - 12 cup of water, bottled, generic
+
+ - 12 cup of peppers, sweet, green, raw
+
+ - 2 teaspoon of seeds, sesame seeds, whole, dried
+
+### Instructions
+
+To prepare dressing, heat oil in a small saucepan over medium heat. Add ginger; saute 2 minutes. Add garlic and crushed red pepper; cook 1 minute. Stir in oyster sauce, soy sauce, sugar, and salt, bring to a simmer. Remove from heat; cool. To prepare salad, cook peas in boiling water 30 seconds. Drain and rinse with cold water. Combine peas and remaining ingredients except sesame seeds. Drizzle dressing over salad; toss well. Sprinkle with sesame seeds.

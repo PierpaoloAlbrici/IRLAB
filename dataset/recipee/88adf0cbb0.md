@@ -1,0 +1,19 @@
+## Cherry Chocolate Sorbet Vita-Mix
+
+[88adf0cbb0](http://www.food.com/recipe/cherry-chocolate-sorbet-vita-mix-465419)
+
+### Ingredients
+
+ - 1 cup of cherries, sweet, raw
+
+ - 14 cup of sweetener, syrup, agave
+
+ - 14 cup of nuts, cashew nuts, raw
+
+ - 14 cup of cocoa, dry powder, unsweetened
+
+ - 12 cup of water, bottled, generic
+
+### Instructions
+
+Mix all together making sure it is combined. About 45 seconds. Don't go too long or it could melt and be slushier. If you want it that way then go for it! Enjoy!

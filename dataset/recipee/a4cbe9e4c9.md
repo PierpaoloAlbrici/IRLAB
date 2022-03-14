@@ -1,0 +1,15 @@
+## Simple and Sweet Ham Glaze
+
+[a4cbe9e4c9](http://www.food.com/recipe/simple-and-sweet-ham-glaze-405471)
+
+### Ingredients
+
+ - 1 cup of sugars, brown
+
+ - 12 cup of honey
+
+ - 12 cup of orange juice, raw
+
+### Instructions
+
+Mix all ingredients together. To use the glaze, remove your ham from the oven when there's 30 minutes left. Pour off any drippings that have accumulated in your pan. Take a sharp knife and score the ham in a criss-cross pattern. If it's a spiral ham, making a set of vertical cuts should be fine. Use about a third of the glaze to coat the ham, and return to 400F oven for 8-10 minutes. Repeat applications of the glaze 1-2 more times, returning the ham to cook for about 8 to 10 minutes after each application of the glaze. Be sure not to use glaze in the bottom of the pan - this will dull the sheen.

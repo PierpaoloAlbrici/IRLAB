@@ -1,0 +1,13 @@
+## Sugared Raspberries
+
+[1aae9fe5bb](http://www.food.com/recipe/sugared-raspberries-120345)
+
+### Ingredients
+
+ - 2 cup of raspberries, raw
+
+ - 2 cup of sugars, granulated
+
+### Instructions
+
+Carefully pick over the berries, removing leaves, foreign objects, and spoiled berries. Place the berries in a mixing bowl, and pour the sugar over them.Use two large forks to mash the sugar into the berries until they are liquified and there is no trace of whole berries left. Don't use a blender, it will pulverize seeds, and they should be left whole. Transfer to jars and refrigerate 2 days before using. They will keep one year refrigerated.

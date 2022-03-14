@@ -1,0 +1,19 @@
+## Balsamic Vinaigrette
+
+[db533faf9c](http://www.food.com/recipe/balsamic-vinaigrette-238175)
+
+### Ingredients
+
+ - 13 cup of oil, olive, salad or cooking
+
+ - 13 cup of vinegar, balsamic
+
+ - 14 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 1 tablespoon of spices, basil, dried
+
+### Instructions
+
+Combine all ingredients in a screw-top jar. Cover and shake. Serve over whatever mixed salad greens you prefer.

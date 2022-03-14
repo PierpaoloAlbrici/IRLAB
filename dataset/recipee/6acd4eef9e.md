@@ -1,0 +1,19 @@
+## Blackberry And Walnut Vinaigrette Recipe
+
+[6acd4eef9e](http://cookeatshare.com/recipes/blackberry-and-walnut-vinaigrette-86217)
+
+### Ingredients
+
+ - 1/2 teaspoon of honey
+
+ - 2 tablespoon of blackberries, raw
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 1 tablespoon of salt, table
+
+### Instructions
+
+In a bowl whisk together the mustard, the vinegar, and salt to taste, add in the oils in a stream, whisking, and whisk the vinaigrette till it is emulsified. Stir in the tarragon. Makes about 1/2 c..

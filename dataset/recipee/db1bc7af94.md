@@ -1,0 +1,27 @@
+## Broiled Catfish Steaks Recipe
+
+[db1bc7af94](http://cookeatshare.com/recipes/broiled-catfish-steaks-93222)
+
+### Ingredients
+
+ - 16 ounce of fish, catfish, channel, wild, raw
+
+ - 1/4 cup of tomato sauce, canned, no salt added
+
+ - 1/4 cup of vinegar, distilled
+
+ - 1 1/2 teaspoon of sugars, granulated
+
+ - 3/4 teaspoon of dill weed, fresh
+
+ - 1/8 teaspoon of spices, paprika
+
+ - 1/4 teaspoon of spices, pepper, black
+
+ - 1/2 teaspoon of sauce, worcestershire
+
+ - 1/2 teaspoon of oil, olive, salad or cooking
+
+### Instructions
+
+Rinse steaks under cool, running water; pat dry and set aside. Combine tomato sauce and next 7 ingredients in a small bowl; stir well. Brush half of mix over 1 side of steaks. Coat rack of a broiler pan with cooking spray. Place steaks on rack; broil 4-5" from heat. Carfully turn fish over; brush with remaining tomato mix. Broil an additional 6 min, or possibly till fish flakes easily when tested with a fork. Garnish with lemon and dill, if you like.

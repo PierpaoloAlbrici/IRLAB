@@ -1,0 +1,19 @@
+## Buttercream Icing Recipe
+
+[ce376f2bdf](http://cookeatshare.com/recipes/buttercream-icing-95614)
+
+### Ingredients
+
+ - 1/2 cup of shortening, vegetable, household, composite
+
+ - 1/2 cup of butter, without salt
+
+ - 1 teaspoon of vanilla extract
+
+ - 4 cup of sugars, powdered
+
+ - 2 tablespoon of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+Cream butter and shortening with electric mixer. add in vanilla. gradually add in sugar, one c. at a time, beating well on meduim speed. scrape sides and bottom of bowl often. When all sugar has been mixed in, icing will appear dry. add in lowfat milk and beat at medium speed till light and fluffy. keep icing covered with a damp cloth till ready to use. for best results, keep icing bowl in refrigerator when not in use. this icing can be stored for 2 weeks. rewhip before using. recipe from "Fun Gun"

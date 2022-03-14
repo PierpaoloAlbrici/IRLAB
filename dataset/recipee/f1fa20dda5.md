@@ -1,0 +1,27 @@
+## Apple Oatmeal Bread Abm Recipe
+
+[f1fa20dda5](http://cookeatshare.com/recipes/apple-oatmeal-bread-abm-67375)
+
+### Ingredients
+
+ - 1 1/2 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 1 1/2 cup of wheat flours, bread, unenriched
+
+ - 1 1/2 cup of oats
+
+ - 1/3 teaspoon of spices, cinnamon, ground
+
+ - 1 1/2 tablespoon of honey
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/2 tablespoon of oil, corn, peanut, and olive
+
+ - 1 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 1/3 cup of apples, raw, with skin
+
+### Instructions
+
+All ingredients should be at room temp before starting. Add in all ingredients except diced apples in order listed. Select white bread or possibly sweet bread. Press start. Add in the apples toward the end of the final kneading when the beep sounds.

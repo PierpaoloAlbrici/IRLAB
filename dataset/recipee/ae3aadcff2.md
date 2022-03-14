@@ -1,0 +1,19 @@
+## Amazing Cream of Soup Alternative
+
+[ae3aadcff2](http://tastykitchen.com/recipes/soups/amazing-cream-of-soup-alternative/)
+
+### Ingredients
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/2 teaspoon of soup, chicken broth or bouillon, dry
+
+ - 1 dash of spices, pepper, black
+
+### Instructions
+
+In a saucepan, over medium heat, melt the butter. Stir in the flour until it darkens and thickens (basic roux). Stir in the milk, bouillon and pepper. Stir constantly until well incorporated and thickened. Done! Kitchen crisis averted!

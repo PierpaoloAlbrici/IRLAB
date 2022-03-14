@@ -1,0 +1,19 @@
+## Gluten-Free Coconut Pineapple Strawberry Smoothies
+
+[7fbd43bddb](http://www.food.com/recipe/gluten-free-coconut-pineapple-strawberry-smoothies-524019)
+
+### Ingredients
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 1/2 cup of strawberries, raw
+
+ - 1 cup of pineapple, raw, all varieties
+
+ - 14 cup of pineapple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 2 tablespoon of seeds, flaxseed
+
+### Instructions
+
+Pour the coconut milk into a clean ice cube tray (it will not fill the entire tray) and freeze at least 4 hours or up to overnight. Add the coconut milk cubes, strawberries, pineapples, pineapple juice and flax seeds to a blender and puree until smooth. Pour into glasses and serve.

@@ -1,0 +1,15 @@
+## Grandma's Mayonnaise Bread
+
+[ccc45faad1](http://www.food.com/recipe/grandmas-mayonnaise-bread-160910)
+
+### Ingredients
+
+ - 3 tablespoon of salad dressing, mayonnaise, regular
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 12 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Preheat oven to 425. Mix all ingredients. Pour into round cake pan or muffin tin. Bake until golden brown.

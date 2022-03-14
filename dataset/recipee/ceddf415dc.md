@@ -1,0 +1,17 @@
+## Butter Pecan Crust Recipe
+
+[ceddf415dc](http://cookeatshare.com/recipes/butter-pecan-crust-95497)
+
+### Ingredients
+
+ - 1/2 cup of butter, without salt
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/4 cup of sugars, granulated
+
+ - 1/2 cup of nuts, pecans
+
+### Instructions
+
+Blend together butter, flour and sugar till the mix is crumbly. Stir in pecans. Press the mix into a 9 inch pie plate and bake at 375F for 12 to 15 min. "Extravagant but delicious. Try this with other nuts - almonds, brasils, walnuts minced with a knife."

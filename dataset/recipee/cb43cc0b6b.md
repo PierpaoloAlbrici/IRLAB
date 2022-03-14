@@ -1,0 +1,23 @@
+## Iz's Ciabatta
+
+[cb43cc0b6b](https://cookpad.com/us/recipes/357101-izs-ciabatta)
+
+### Ingredients
+
+ - 1/8 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 1 cup of wheat flours, bread, unenriched
+
+ - 3 2/3 ounce of water, bottled, generic
+
+ - 2 cup of wheat flours, bread, unenriched
+
+ - 1/2 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 7 1/3 ounce of water, bottled, generic
+
+ - 1 1/2 teaspoon of salt, table
+
+### Instructions
+
+Biga: Mix flour and yeast together Add water and mix until incorporated Cover with plastic and allow to sit 12 to 24 hours Final Dough Place Biga and water into bowl and dissolve biga Add flour yeast and salt Mix, I hand mix this, until smooth and silky Cover and allow to rise until doubled, about 1 and a half hours After the first 20 minutes fold the dough. I will post pics on the method. Dust the table top well. Sprinkle some flour on the top of the dough Turn out onto floured table top Fold one side 2/3 over Repeat with the other side Now the top Then the bottom Placing folds down, return to the bowl and cover. Allow to rise the remaining time. Turn out onto a well floured surface and halve Form into rough ovals, dust tops with flour, cover and let rise until doubled. Another 1 and a half hours or so. Preheat your oven and stone to 450F Transfer loaves to stone and bake 20-30 minutes. Cool on a wire rack.

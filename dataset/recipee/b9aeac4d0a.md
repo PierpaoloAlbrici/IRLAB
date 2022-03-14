@@ -1,0 +1,21 @@
+## Brownie In a Mug
+
+[b9aeac4d0a](http://allrecipes.com/recipe/brownie-in-a-mug/)
+
+### Ingredients
+
+ - 1/4 cup of sugars, granulated
+
+ - 1/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 tablespoon of cocoa, dry powder, unsweetened
+
+ - 1 pinch of salt, table
+
+ - 3 tablespoon of water, bottled, generic
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+Stir sugar, flour, cocoa powder, and salt together in a mug. Add water and olive oil; stir until mixture is evenly moist. Cook in microwave for 1 minute 40 seconds. Serve topped with ice cream.

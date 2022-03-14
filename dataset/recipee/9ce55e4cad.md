@@ -1,0 +1,15 @@
+## Vegan Spelt and Maize Tortillas
+
+[9ce55e4cad](http://www.food.com/recipe/vegan-spelt-and-maize-tortillas-414480)
+
+### Ingredients
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of cornmeal, degermed, unenriched, yellow
+
+ - 1 cup of water, bottled, generic
+
+### Instructions
+
+Combine the flour and maize meal and sift them together into the large bowl of your stand mixer. Make a well in the flour/maize mixture and add the warm water. With the dough hook, combine the ingredients into a soft dough. Remove and make a disc and cut it into 16 pieces. Form each piece into a ball and put in a bowl and cover with saran wrap. Heat your tortilla pan until its very hot. Roll each ball out very thinly and cook until the edges curl slightly, then flip the tortilla for a few seconds. Put on a dish and cover with a lid. When you are done serve the tortillas warm by heating lightly either in the oven or microwave. Fill with your favourite fillings. Bon Appetit!

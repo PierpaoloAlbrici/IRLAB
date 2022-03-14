@@ -1,0 +1,23 @@
+## Parmesan Potato Sticks
+
+[bdb67edd87](http://www.food.com/recipe/parmesan-potato-sticks-36352)
+
+### Ingredients
+
+ - 12 cup of delallo, italian seasoned breadcrumbs, upc: 072368104621
+
+ - 12 cup of cheese, parmesan, hard
+
+ - 18 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+ - 2 pound of potatoes, raw, skin
+
+ - 12 cup of butter, without salt
+
+### Instructions
+
+Preheat the oven to 400 degrees. Melt butter. Coat a 9 x 13 dish with nonstick cooking spray. In a small bowl combine bread crumbs, parmesan cheese, garlic powder, salt, and pepper; mix well and set aside. Peel potatoes and cut lengthwise into quarters; cut each quarter lengthwise into 3 strips. Dip each strip in the melted butter, then in Parmesan mixture, coating completely. Place in a single layer in the baking dish. Pour any remaining melted butter over potatoes. Bake for 30 to 35 minutes, or until potatoes are tender, turning them over once or twice.

@@ -1,0 +1,21 @@
+## Succotash
+
+[afa62fecf9](http://www.food.com/recipe/succotash-9470)
+
+### Ingredients
+
+ - 1 cup of beans, snap, green, raw
+
+ - 14 teaspoon of spices, pepper, black
+
+ - 3 tablespoon of butter, without salt
+
+ - 1 1/2 cup of corn, sweet, white, raw
+
+ - 1/4-1/2 cup of cream, whipped, cream topping, pressurized
+
+ - 34 teaspoon of salt, table
+
+### Instructions
+
+Cook beans until tender. Add the corn pulp and cook for 5 minutes once it starts boiling. Add butter and seasonings. If there is enough liquid with the beans, the cream may be omitted.

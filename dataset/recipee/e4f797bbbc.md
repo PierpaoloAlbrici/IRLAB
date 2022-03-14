@@ -1,0 +1,23 @@
+## Gramma's Apple Crisp
+
+[e4f797bbbc](http://www.food.com/recipe/grammas-apple-crisp-17719)
+
+### Ingredients
+
+ - 4 cup of apples, raw, with skin
+
+ - 14 cup of orange juice, raw
+
+ - 1 cup of sugars, granulated
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of spices, nutmeg, ground
+
+ - 12 cup of butter, without salt
+
+### Instructions
+
+Lay apples in buttered 9 inch square cake pan. Sprinkle apples with orange juice. Combine flour sugar spices and pinch of salt. Cut butter into flour mixture until crumbly. Sprinkle over apples. Bake at 375 for 45 minutes until topping is crisp. Serve warm.

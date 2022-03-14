@@ -1,0 +1,17 @@
+## Hot Toddy
+
+[301dfafcba](http://www.food.com/recipe/hot-toddy-493283)
+
+### Ingredients
+
+ - 50 ml of alcoholic beverage, distilled, rum, 80 proof
+
+ - 120 ml of water, bottled, generic
+
+ - 1 tablespoon of honey
+
+ - 2 tablespoon of lemon juice, raw
+
+### Instructions
+
+Mix everything and enjoy.

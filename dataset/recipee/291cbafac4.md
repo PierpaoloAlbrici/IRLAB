@@ -1,0 +1,31 @@
+## Noodles Parmano
+
+[291cbafac4](http://www.food.com/recipe/noodles-parmano-367782)
+
+### Ingredients
+
+ - 12 ounce of egg substitute, powder
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 tablespoon of cheese, parmesan, hard
+
+ - 34 cup of cheese, parmesan, hard
+
+ - 12 cup of cheese, parmesan, hard
+
+ - 14 teaspoon of spices, pepper, black
+
+ - 12 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of spices, onion powder
+
+ - 14 teaspoon of salt, table
+
+ - 1 1/2 cup of cream, sour, cultured
+
+ - 34 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Bring pot of salted water to a boil and cook noodles according to package instructions. While noodles are cooking, mix cheese powder, cheese, and seasonings in a bowl and set aside. Drain noodles and add butter, stirring until melted. Add milk and sour cream and cheese mixture to noodles and cook, stirring on medium until hot and well blended.

@@ -1,0 +1,27 @@
+## Waldorf Salad
+
+[dfaead6c12](http://www.food.com/recipe/waldorf-salad-274101)
+
+### Ingredients
+
+ - 4 cup of apples, raw, with skin
+
+ - 2 cup of celery, raw
+
+ - 3 teaspoon of lemon juice, raw
+
+ - 12 cup of dates, deglet noor
+
+ - 12 cup of nuts, walnuts, english
+
+ - 12 cup of cream, fluid, heavy whipping
+
+ - 2 tablespoon of salad dressing, mayonnaise, regular
+
+ - 12 teaspoon of honey
+
+ - 1 1/2 teaspoon of lemon juice, raw
+
+### Instructions
+
+Cube the apples leaving the peels on them. Slice the celery and add to the apples. Add the 3 teaspoons lemons juice and toss. Add the dates and the walnuts. Set aside. DRESSING:. Whip the heavy cream to soft peaks. Fold in the mayonnaise, honey, and remaining lemon juice. Add to apples and toss.

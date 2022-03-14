@@ -1,0 +1,21 @@
+## Mixed-Grain Sushi Rice
+
+[ced8ee121e](http://www.vegetariantimes.com/recipe/mixed-grain-sushi-rice/)
+
+### Ingredients
+
+ - 4 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 2 tablespoon of quinoa, uncooked
+
+ - 2 tablespoon of barley, hulled
+
+ - 1/2 cup of rice vinegar, upc: 4979435030332
+
+ - 3 tablespoon of sugars, granulated
+
+ - 3 teaspoon of salt, table
+
+### Instructions
+
+Rinse and drain rice several times until water runs clear. Set aside in strainer 30 minutes. Bring rice, quinoa, barley flakes, and 4 cups plus 1 Tbs. water to a simmer in large pot. Reduce heat to low, cover, and cook 15 minutes, or until water is absorbed. Remove from heat, and let stand, covered, 20 minutes. (If using a rice cooker, measure out grains in rice cooker cups, place in cooker, add water to appropriate line, then add additional 1 Tbs. water. Cook according to rice cooker instructions.) Stir vinegar, sugar, and salt together in bowl until sugar and salt dissolve. Fluff grains with wooden spoon and fold in vinegar mixture. Cover with damp towel until ready to use.

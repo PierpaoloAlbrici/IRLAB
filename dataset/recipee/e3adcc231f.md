@@ -1,0 +1,13 @@
+## Marshmallow Creme Dip
+
+[e3adcc231f](http://www.food.com/recipe/marshmallow-creme-dip-172097)
+
+### Ingredients
+
+ - 7 ounce of candies, marshmallows
+
+ - 8 ounce of cheese, parmesan, hard
+
+### Instructions
+
+Cut up cream cheese into marshmallow creme then blend with mixer. Better if served closer to room temperature. If you need to refrigerate, take out about 30 minutes before serving.

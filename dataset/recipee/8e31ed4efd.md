@@ -1,0 +1,27 @@
+## Bar B Q Sauce Supreme Recipe
+
+[8e31ed4efd](http://cookeatshare.com/recipes/bar-b-q-sauce-supreme-78040)
+
+### Ingredients
+
+ - 3 tablespoon of sugars, brown
+
+ - 2 tablespoon of sauce, worcestershire
+
+ - 1/2 tablespoon of mustard, prepared, yellow
+
+ - 1/2 cup of vinegar, distilled
+
+ - 1/2 cup of catsup
+
+ - 1/4 cup of butter, without salt
+
+ - 1 teaspoon of salt, table
+
+ - 1/2 teaspoon of spices, pepper, black
+
+ - 1 teaspoon of spices, paprika
+
+### Instructions
+
+Heat to boil.

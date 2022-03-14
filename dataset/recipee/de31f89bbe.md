@@ -1,0 +1,17 @@
+## The Ultimate Margarita
+
+[de31f89bbe](http://allrecipes.com/recipe/the-ultimate-margarita/)
+
+### Ingredients
+
+ - 1/2 fl. oz of orange juice, raw
+
+ - 2 fl. oz of alcoholic beverage, tequila sunrise, canned
+
+ - 1 fl. oz of lime juice, raw
+
+ - 1 fl. oz of sweetener, syrup, agave
+
+### Instructions
+
+Shake together all ingredients with ice and strain into a margarita glass. Optional: rub the cut side of a lime on the glass rim and dip it into salt; and add a lime wedge to the rim of the glass as a garnish.

@@ -1,0 +1,23 @@
+## Low-Sugar French Bread-Style Table Rolls
+
+[1d6bcbb67d](https://cookpad.com/us/recipes/149193-low-sugar-french-bread-style-table-rolls)
+
+### Ingredients
+
+ - 50 g of wheat flour, white, all-purpose, unenriched
+
+ - 50 g of wheat flour, white, all-purpose, unenriched
+
+ - 100 ml of water, bottled, generic
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 1 pinch of salt, table
+
+ - 2 teaspoon of sweetener, syrup, agave
+
+ - 4 g of leavening agents, yeast, baker's, active dry
+
+### Instructions
+
+Measure the dry ingredients in a plastic bag, and shake to mix together while incorporating air. Put Step 1 into a bowl, and add in the A ingredients and B ingredients apart from each other (as if dividing them with the flour from Step 1). Pour the lukewarm water over the B ingredients. Mix with a rubber spatula until everything has come together, and knead by hand. It's very sticky to start with, but it will become firmer if you keep kneading. When the dough has become glossy, it's ready. Divide the dough into 4 pieces and roll into balls, tucking the cut ends inside. Place them on a baking tray. (Shape into your desired style.) Pour hot water in a tea cup, and place in an empty space on the baking tray (to maintain the humidity). Let the dough rise for 40 minutes to 1 hour at 35-40C. Bake for about 15 minutes in an oven preheated to 180-200C. (If you mist the dough with a water sprayer before baking, the crust will be crispy.) When they are baked, let cool on a rack, and they are done. (Cover with a foil, if they look like they are going to burn.) Soy flour bread is easy to brown, so keep an eye on it when you're baking with it for the first time. By doing so, you won't fail baking it, and it's easier to adjust the baking time. If you shape it long and thin, it will be just like grissini bread sticks. If you proof the dough twice as normal, it won't puff up much while baking. So the bread will turn out dense and heavy. It's easier to remove the dough from the bowl with a scraper or spatula.

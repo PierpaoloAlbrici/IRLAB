@@ -1,0 +1,27 @@
+## Portuguese Sofrito Bread Abm
+
+[ae2cfcc4f6](http://www.food.com/recipe/portuguese-sofrito-bread-abm-370642)
+
+### Ingredients
+
+ - 1 cup of onions, raw
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 2 1/4 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 3 cup of wheat flours, bread, unenriched
+
+ - 1 1/2 tablespoon of sugars, granulated
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 14 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 3 tablespoon of cornmeal, degermed, unenriched, yellow
+
+ - 12 cup of water, bottled, generic
+
+### Instructions
+
+Chop onion into 1/2 inch pieces. Saute in olive oil until transparent and barely golden 15 minutes. Let cool. Add all ingredients including cooled onions in order suggested by bread machine. Process according to manual directions.

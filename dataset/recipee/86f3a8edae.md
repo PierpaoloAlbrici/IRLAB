@@ -1,0 +1,31 @@
+## Simple Chicken Curry
+
+[86f3a8edae](http://allrecipes.com/recipe/simple-chicken-curry/)
+
+### Ingredients
+
+ - 6 tablespoon of butter, without salt
+
+ - 1/2 cup of onions, raw
+
+ - 1 tablespoon of spices, curry powder
+
+ - 6 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 1 1/2 teaspoon of sugars, granulated
+
+ - 1/4 teaspoon of spices, ginger, ground
+
+ - 2 cup of soup, chicken broth or bouillon, dry
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 4 cup of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 1 tablespoon of lemon juice, raw
+
+### Instructions
+
+Melt butter in large skillet over medium-high heat. Add onion and curry powder; saute until tender, about 5 minutes. Stir flour, salt, sugar, and ginger into the onion mixture; cook until smooth and bubbling, about 5 minutes. Pour chicken broth and milk into the skillet, stir, and bring to a boil; cook at a boil for 1 minute. Stir chicken and lemon juice into the broth to cover completely; cook until the chicken is heated through, about 5 minutes.

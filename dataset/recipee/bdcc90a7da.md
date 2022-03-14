@@ -1,0 +1,25 @@
+## Spiced Pumpkin Butter
+
+[bdcc90a7da](http://www.food.com/recipe/spiced-pumpkin-butter-467742)
+
+### Ingredients
+
+ - 3 1/2 cup of pumpkin, raw
+
+ - 1 1/4 cup of syrup, maple, canadian
+
+ - 12 cup of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 2 tablespoon of lemon juice, raw
+
+ - 1 teaspoon of spices, ginger, ground
+
+ - 12 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of spices, nutmeg, ground
+
+ - 14 teaspoon of salt, table
+
+### Instructions
+
+In a large saucepan, combine pumpkin, maple syrup, apple juice, lemon juice, ginger, cinnamon, nutmeg and salt. Bring to a boil, reduce heat and simmer, uncovered, about 25 minutes or until thickened, stirring often. Ladle into sterilized half pint jars leaving a 1/2" headspace. Cool for 30 minutes. Seal and label. Store in refrigerator for up to 1 week or transfer to freezer containers and freeze up to 6 months.

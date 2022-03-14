@@ -1,0 +1,17 @@
+## New England Halibut
+
+[8d2ffcbe5b](http://www.food.com/recipe/new-england-halibut-211899)
+
+### Ingredients
+
+ - 3 tablespoon of butter, without salt
+
+ - 1 1/4 teaspoon of spices, chili powder
+
+ - 12 teaspoon of salt, table
+
+ - 1 pound of fish, halibut, greenland, raw
+
+### Instructions
+
+Combine the butter, chili powder, and onion salt. Spread mixture over both sides of your halibut fillets or steaks. Broil fish in oven until it flakes easily.

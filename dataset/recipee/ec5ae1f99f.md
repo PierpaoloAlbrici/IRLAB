@@ -1,0 +1,35 @@
+## Cherry Berry Scones
+
+[ec5ae1f99f](http://www.food.com/recipe/cherry-berry-scones-477772)
+
+### Ingredients
+
+ - 3 cup of wheat flour, white, all-purpose, unenriched
+
+ - 13 cup of sugars, granulated
+
+ - 1 tablespoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 34 teaspoon of salt, table
+
+ - 1 1/2 teaspoon of orange juice, raw
+
+ - 14 cup of cherries, sweet, raw
+
+ - 14 cup of blueberries, raw
+
+ - 14 cup of cranberries, dried, sweetened
+
+ - 1 1/2 cup of cream, fluid, heavy whipping
+
+ - 2 tablespoon of cream, fluid, heavy whipping
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 3 tablespoon of sugars, granulated
+
+ - 1 teaspoon of sugars, granulated
+
+### Instructions
+
+Preheat oven to 400 degrees. Place parchment paper on two half-sheet baking pans (parchment paper will make clean-up a snap, or use ungreased baking sheets). Whisk together the dry ingredients. Stir in orange zest and dried fruit (3/4 cup of any dried fruit will do). Form a well in the center of the mix and pour in 1 1/2 cup heavy cream. Quickly mix together with a fork until just combined. Divide dough into three equal balls. On a lightly floured work surface, gently (do not overwork the dough or they will be tough) form each portion into a flatten circle about 3/4 thick. Cut each circle into 6 triangles. Place triangles on baking sheets, about 1-2 apart. Brush each scone with remaining heavy cream; combine the cinnamon and sugar; then sprinkle with cinnamon sugar. Bake 12-15 minutes or until lightly browned.

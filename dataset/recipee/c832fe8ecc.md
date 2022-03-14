@@ -1,0 +1,21 @@
+## Pimiento Cheese (The Best)
+
+[c832fe8ecc](http://www.food.com/recipe/pimiento-cheese-the-best-187050)
+
+### Ingredients
+
+ - 8 ounce of cheese, cheddar
+
+ - 8 ounce of cheese, cheddar
+
+ - 12 cup of salad dressing, mayonnaise, regular
+
+ - 4 ounce of spices, pepper, black
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+ - 1 tablespoon of vinegar, red wine
+
+### Instructions
+
+In small bowl, stir all ingredients gently until well mixed. May seem as though 1/2 cup of mayo is not adequate, but don't add more for best, most flavorful results.

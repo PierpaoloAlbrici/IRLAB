@@ -1,0 +1,15 @@
+## Yogurt and Chive Cheese
+
+[fa6c2a0bab](http://cooking.nytimes.com/recipes/929)
+
+### Ingredients
+
+ - 24 ounce of yogurt, greek, plain, nonfat
+
+ - 3 tablespoon of chives, raw
+
+ - 1 tablespoon of spices, pepper, black
+
+### Instructions
+
+Make a 10-inch square of cheesecloth, 8 layers thick, and place it on the counter top. Open the yogurt containers, pour off any excess liquid, and empty the yogurt into the center of the cheesecloth. Gather the corners together, and tie with string, making a pouch. Tie the string to the midpoint of the handle of a long wooden spoon, and suspend the ball of yogurt over a bowl wide and deep enough to allow the ball to hang freely a few inches above the bottom. After four to five hours, discard any liquid that has drained from the yogurt into the bowl. Remove the ball from the spoon, and untie the cheesecloth. In the center will be a thick ball of yogurt cheese, similar in texture to soft cream cheese. Mix the chives and black pepper into the cheese, and refrigerate in an airtight container until needed, up to 1 week.

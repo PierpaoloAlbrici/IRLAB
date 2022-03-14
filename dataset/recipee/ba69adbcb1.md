@@ -1,0 +1,23 @@
+## Chocolate Sorbet
+
+[ba69adbcb1](http://www.food.com/recipe/chocolate-sorbet-68357)
+
+### Ingredients
+
+ - 2 1/4 cup of water, bottled, generic
+
+ - 1 cup of sugars, granulated
+
+ - 34 cup of cocoa, dry powder, unsweetened
+
+ - 1 tablespoon of cocoa, dry powder, unsweetened
+
+ - 9 3/4 ounce of pascha, organic bitter-sweet dark chocolate chips, upc: 842638005022
+
+ - 1 cup of water, bottled, generic
+
+ - 1 tablespoon of water, bottled, generic
+
+### Instructions
+
+In a medium saucepan, combine 2 1/4 cups of water and the sugar, and bring to a boil over high heat, stirring occasionally. Gradually add cocoa powder, whisking until smooth. Reduce heat to low, and cook mixture at a gentle simmer for 30 minutes, until syrupy. Put chocolate in a large bowl, add half the cocoa syrup, whisking until chocolate is melted and mixture is smooth. Add remaining syrup and whisk well. Strain mixture through a fine sieve, and let cool. Stir in 1 cup plus 1 tablespoon of water. Chill sorbet mixture covered until very cold, at least 4 hours. Freeze in an ice-cream maker according to manufacturer's directions.

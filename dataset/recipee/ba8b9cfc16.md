@@ -1,0 +1,19 @@
+## Honey-Butter Roasted Beets
+
+[ba8b9cfc16](http://www.food.com/recipe/honey-butter-roasted-beets-516262)
+
+### Ingredients
+
+ - 2 pound of beets, raw
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 tablespoon of honey
+
+ - 14 teaspoon of salt, table
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Preheat oven to 375&deg;F. Slice green tops from beets (and reserve for another use if desired). Carefully peel rough outside layer from beets. Slice beets to 1/4-inch thickness (note that some larger beets may require slicing into quarters). Then arrange in a single layer on a large baking sheet with raised sides. In a small microwave-safe bowl, melt honey and butter together (microwave for 30-40 seconds until smooth). Whisk in the salt and vanilla. Drizzle honey-butter mixture over beet slices and toss with hands or a rubber spatula until thoroughly coated. Then rearrange into a single layer. Roast for 20 minutes, remove from oven, toss with a rubber spatula, redistribute in the pan and return to toast another 10-15 minutes. Remove from oven, allow to cool for 5 minutes and serve.

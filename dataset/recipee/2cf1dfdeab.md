@@ -1,0 +1,21 @@
+## Strawberry Crisp
+
+[2cf1dfdeab](http://www.food.com/recipe/strawberry-crisp-115590)
+
+### Ingredients
+
+ - 1 cup of oats
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of sugars, brown
+
+ - 12 cup of butter, without salt
+
+ - 12 cup of sugars, granulated
+
+ - 4 cup of strawberries, raw
+
+### Instructions
+
+Preheat oven to 350 degrees . Grease an 8in square pan. Mix together oatmeal, flour and brown sugar. Cut in butter until crumbly. In another bowl, mix strawberries and white sugar together. Spread half the crumb mixture on the bottom of the pan. Cover with the strawberries. Spread remaining crumb mixture over the top. Bake at 350 degrees for 45 minutes. Serve warm or cold with ice cream or whipped cream.

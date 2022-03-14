@@ -1,0 +1,19 @@
+## Grilled Asian Salmon
+
+[f7bf757dea](http://www.food.com/recipe/grilled-asian-salmon-491833)
+
+### Ingredients
+
+ - 1 tablespoon of oil, sesame, salad or cooking
+
+ - 1 tablespoon of soy sauce made from soy (tamari)
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 1 tablespoon of roland, seasoned rice wine vinegar, upc: 041224705142
+
+ - 16 ounce of fish, salmon, atlantic, wild, raw
+
+### Instructions
+
+In a shallow glass dish, combine sesame oil, soy sauce, ginger and vinegar. Add salmon and turn to coat all sides. Refrigerate for 30 to 60 minutes, turning occasionally. Preheat the grill to medium-high heat. Lightly oil the grill and place the salmon on the grill. Grill about 5 minutes per side. Test for doneness by placing a knife blade into the center to see if the pink flesh has become opaque. Serve warm.

@@ -1,0 +1,19 @@
+## Strawberry and Rainier Cherry Jam
+
+[ec9aa3b9cb](http://www.food.com/recipe/strawberry-and-rainier-cherry-jam-433599)
+
+### Ingredients
+
+ - 5 cup of cherries, sweet, raw
+
+ - 3 cup of strawberries, raw
+
+ - 6 cup of sugars, granulated
+
+ - 14 cup of lemon juice, raw
+
+ - 1 3/4 ounce of pectin, unsweetened, dry mix
+
+### Instructions
+
+Thaw out frozen strawberries. Clean and pit cherries. Blend strawberries and cherries in a food processor. Pour mixture and lemon juice in 6-8 qt saucepan. Whisk in fruit pectin and sugar. Bring to a rolling boil over med-high heat, stirring constantly for about 20 or more minutes until jam is at desired thickness (though remember it will thicken up more once the jam cools). Ladle into prepared 1/2 pint jars, leaving 1/4" headspace. Lid jars and place into boiling canner. Boil jars for 10 minutes. Remove jars from boiler and let them cool for 24 hours for a good seal.

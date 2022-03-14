@@ -1,0 +1,23 @@
+## Diana's Favourite Caramel Corn
+
+[549cdbc1dc](http://www.food.com/recipe/dianas-favourite-caramel-corn-225144)
+
+### Ingredients
+
+ - 2 cup of sugars, brown
+
+ - 12 cup of syrups, corn, light
+
+ - 1 cup of butter, without salt
+
+ - 14 teaspoon of cream, whipped, cream topping, pressurized
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 6 quart of corn, sweet, white, raw
+
+### Instructions
+
+In a large pot, combine sugar, corn syrup, butter, cream of tartar and salt. Boil rapidly on medium high heat, stirring constantly until mixture reaches 260 on a candy thermometer. Remove from heat. Stir in soda thoroughly. Pour over popped corn in a large bowl. Stir until well coated. Place popcorn on a large buttered cookie sheet. Bake for 1 hour at 200, stirring 3 or 4 times. Keep in a tightly covered container. Care should be taken not to get the caramel on your skin. Trust me -- I know the consequences.

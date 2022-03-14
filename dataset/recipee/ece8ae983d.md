@@ -1,0 +1,17 @@
+## Chocolate Sauce
+
+[ece8ae983d](http://www.delish.com/recipefinder/chocolate-sauce-recipe-rbk0511)
+
+### Ingredients
+
+ - 4 ounce of candies, semisweet chocolate
+
+ - 1 tablespoon of butter, without salt
+
+ - 1/2 cup of cream, fluid, heavy whipping
+
+ - 2 teaspoon of vanilla extract
+
+### Instructions
+
+In a microwave-safe bowl, combine chocolate and butter. Microwave 1 to 1 1/2 minutes, then whisk until smooth. In a saucepan, heat cream over medium heat and bring just to a boil. Whisk cream into melted chocolate until smooth. Stir in vanilla extract.

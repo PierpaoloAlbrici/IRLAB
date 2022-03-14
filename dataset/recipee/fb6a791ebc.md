@@ -1,0 +1,23 @@
+## Traditional Sweet Potato Casserole
+
+[fb6a791ebc](http://www.food.com/recipe/traditional-sweet-potato-casserole-340226)
+
+### Ingredients
+
+ - 2 1/2 pound of sweet potato, raw, unprepared
+
+ - 34 cup of sugars, brown
+
+ - 14 cup of butter, without salt
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 12 teaspoon of vanilla extract
+
+ - 12 cup of nuts, pecans
+
+ - 2 cup of candies, marshmallows
+
+### Instructions
+
+Preheat oven to 375. Place the sweet potatoes in a Dutch oven, and cover with cold water. Bring to a boil. Reduce heat, and simmer for 15 minutes or until very tender. Drain; cool slightly. Place potatoes in a large bowl. Add sugar and next 3 ingredients (through vanilla). Mash sweet potato mixture with a potato masher. Fold in 1/4 cup pecans. Scrape potato mixture into an even layer in an 11 x 7-inch baking dish coated with cooking spray. Sprinkle with remaining 1/4 cup pecans; top with marshmallows. Bake at 375 for 25 minutes or until golden.

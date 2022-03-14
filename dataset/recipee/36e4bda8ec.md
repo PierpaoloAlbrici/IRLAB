@@ -1,0 +1,29 @@
+## Oat Cake Crackers
+
+[36e4bda8ec](http://www.food.com/recipe/oat-cake-crackers-118547)
+
+### Ingredients
+
+ - 1 1/2 cup of oat bran, raw
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of oats
+
+ - 1 cup of oats
+
+ - 1 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 teaspoon of salt, table
+
+ - 14 cup of oil, olive, salad or cooking
+
+ - 1 cup of water, bottled, generic
+
+ - 2 tablespoon of water, bottled, generic
+
+ - 2 tablespoon of seeds, flaxseed
+
+### Instructions
+
+Combine dry ingredients. Work oil into flour mixture. Mix in water and immediately divide in half; shape into a rectangle and put on 2 sheets of waxed paper with quick oats scattered on it. Cover with another sheet of waxed paper and roll out 1/4" thick. You need to work quickly with the dough once you add the water, or you'll end up with a brick. Remove top paper, cut with pizza cutter, Put on 2 cookie sheets. Bake 400 for 25 minutes, shifting sheets top to bottom and front to back half way through baking. Bake till lightly brown. Cool on racks.

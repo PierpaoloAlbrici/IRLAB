@@ -1,0 +1,13 @@
+## Sesame Seed / Nut Milk
+
+[3cef87bdda](http://www.food.com/recipe/sesame-seed-nut-milk-158844)
+
+### Ingredients
+
+ - 1 cup of seeds, sesame seeds, whole, dried
+
+ - 2 cup of water, bottled, generic
+
+### Instructions
+
+Soak 1 cup of seeds in 2 cups of water overnight. In morning, blend in blender for 5 minutes or until smooth. Strain and pour into a jar. Note: I strain the seeds then add fresh water before blending although it's not necessary.

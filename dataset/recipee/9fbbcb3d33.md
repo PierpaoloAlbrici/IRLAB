@@ -1,0 +1,19 @@
+## Easiest Chicken and Noodles Ever
+
+[9fbbcb3d33](http://www.food.com/recipe/easiest-chicken-and-noodles-ever-76654)
+
+### Ingredients
+
+ - 3-4 pound of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 1 teaspoon of salt, table
+
+ - 12 teaspoon of spices, pepper, black
+
+ - 2 cup of water, bottled, generic
+
+ - 12 ounce of egg substitute, powder
+
+### Instructions
+
+Place chicken in crock pot, sprinkle with salt and pepper, and add water. Cover and cook on low 8 to 10 hours or high 4 to 5 hours. Remove chicken from crockpot and place on platter. Turn crockpot to high (if not there already) and add noodles. Debone and dice chicken into small pieces. Stir chicken into noodles and broth. Cook 30 to 45 minutes more on high, stirring occasionally.

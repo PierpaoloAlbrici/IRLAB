@@ -1,0 +1,23 @@
+## Rum Punch
+
+[44cdcf9baa](http://www.food.com/recipe/rum-punch-339899)
+
+### Ingredients
+
+ - 2 cup of alcoholic beverage, distilled, rum, 80 proof
+
+ - 1 cup of alcoholic beverage, distilled, rum, 80 proof
+
+ - 12 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 6 tablespoon of syrups, grenadine
+
+ - 12 cup of lime juice, raw
+
+ - 5 cup of orange juice, raw
+
+ - 5 cup of pineapple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+### Instructions
+
+Mix all ingredients well. Chill. Enjoy!

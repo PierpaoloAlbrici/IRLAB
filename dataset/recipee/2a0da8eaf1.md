@@ -1,0 +1,17 @@
+## Sugar Free Applesauce
+
+[2a0da8eaf1](http://www.food.com/recipe/sugar-free-applesauce-218249)
+
+### Ingredients
+
+ - 1 kg of apples, raw, with skin
+
+ - 1 cup of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 2-3 tablespoon of lemon juice, raw
+
+ - 2 tablespoon of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+### Instructions
+
+Chop apples coarsely, but DO NOT peel or core. Add apples, apple juice and lemon juice to heavy based saucepan. Simmer for 15-20 minutes, covered, or until apples collapse. Stir through concentrate. Place a coarse sieve over a large bowl and using a large wooden spoon, press cooked apples through the sieve. (This separates the skin and seeds from the puree.) This is probably the hardest part of the recipe. I had to have a few rests doing while doing this! It would be good to have others around to help out with this bit. lol. Discard leftovers in the sieve. The apple sauce is now ready to serve, either hot or cold.

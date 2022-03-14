@@ -1,0 +1,17 @@
+## Spinach With Sesame Seed
+
+[2ffb4e1b6a](http://www.food.com/recipe/spinach-with-sesame-seed-138862)
+
+### Ingredients
+
+ - 1 pound of spinach, raw
+
+ - 3 tablespoon of seeds, sesame seeds, whole, dried
+
+ - 3 tablespoon of soy sauce made from soy (tamari)
+
+ - 1 tablespoon of sugars, granulated
+
+### Instructions
+
+In a large saucepan cook spinach in 2 cups boiling water for 2 minutes; drain and rinse in cold water. Drain again and squeeze dry. Chop spinach coarsely and set aside in a deep serving dish. In a small skillet over high heat toast sesame seed until light brown (2-3 minutes)and then sesame seed to a mortar and crush with pestle. Stir in soy sauce and sugar. Toss sesame seed mixture with spinach and serve.

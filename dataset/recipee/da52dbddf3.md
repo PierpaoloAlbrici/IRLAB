@@ -1,0 +1,31 @@
+## Aunty Fran's Veg Dip
+
+[da52dbddf3](http://www.food.com/recipe/aunty-frans-veg-dip-405420)
+
+### Ingredients
+
+ - 3 cup of salad dressing, mayonnaise, regular
+
+ - 1 1/2 cup of cream, sour, cultured
+
+ - 1 1/2 teaspoon of lemon juice, raw
+
+ - 34 teaspoon of spices, garlic powder
+
+ - 34 teaspoon of salt, table
+
+ - 34 teaspoon of spices, paprika
+
+ - 34 cup of parsley, fresh
+
+ - 3 tablespoon of onions, raw
+
+ - 3 tablespoon of chives, raw
+
+ - 18 teaspoon of spices, curry powder
+
+ - 1 1/2 tablespoon of sauce, worcestershire
+
+### Instructions
+
+Stir to combine. Seal with plastic wrap. Chill for 1 hour (minimum). Serve with Ripple Chips.

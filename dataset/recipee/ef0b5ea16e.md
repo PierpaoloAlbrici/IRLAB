@@ -1,0 +1,15 @@
+## Breakfast Quinoa
+
+[ef0b5ea16e](http://www.food.com/recipe/breakfast-quinoa-515514)
+
+### Ingredients
+
+ - 12 cup of quinoa, uncooked
+
+ - 1 cup of water, bottled, generic
+
+ - 1 tablespoon of cocoa, dry powder, unsweetened
+
+### Instructions
+
+Bring quinoa and water to a boil. Reduce heat to 4 and cook 10 minutes uncovered. Add 1 Tbsp coca nibs; cover and cook 10 minutes more.

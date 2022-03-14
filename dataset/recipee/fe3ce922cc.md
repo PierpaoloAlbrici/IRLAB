@@ -1,0 +1,29 @@
+## Sesame Pork Tidbits with Sweet and Sour Sauce
+
+[fe3ce922cc](https://recipeland.com/recipe/v/sesame-pork-tidbits-sweet-sour--47712)
+
+### Ingredients
+
+ - 1 1/2 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 1/2 cup of cornstarch
+
+ - 1/4 cup of sauce, teriyaki, ready-to-serve
+
+ - 3 cup of oil, olive, salad or cooking
+
+ - 1/4 cup of sugars, granulated
+
+ - 1/4 cup of vinegar, distilled
+
+ - 1/4 cup of catsup
+
+ - 1/4 cup of water, bottled, generic
+
+ - 1 tablespoon of sauce, teriyaki, ready-to-serve
+
+ - 1 1/2 teaspoon of cornstarch
+
+### Instructions
+
+Trim excess fat from pork; cut into 1 inch cubes and set aside. Thoroughly combine cornstarch, teriyaki sauce and sesame seed in medium bowl (mixture will be very stiff). Stir in pork cubes; let stand 30 minutes. Meanwhile, prepare Sweet and Sour Sauce; (see below) keep warm. Heat oil in medium saucepan over medium-high heat to 300F (150C). Add 13 of the pork cubes and cook, stirring constantly, until golden brown, about 2 minutes. Remove and drain on paper towels. Repeat with remaining pork. Serve immediately with warm Sweet and Sour Sauce.

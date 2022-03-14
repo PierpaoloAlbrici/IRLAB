@@ -1,0 +1,17 @@
+## Honey Mustard Dressing
+
+[fca029dba0](http://www.food.com/recipe/honey-mustard-dressing-437334)
+
+### Ingredients
+
+ - 2 tablespoon of vinegar, cider
+
+ - 2 tablespoon of mustard, prepared, yellow
+
+ - 1 tablespoon of honey
+
+ - 12 cup of oil, olive, salad or cooking
+
+### Instructions
+
+In a medium mason jar, combine apple cider vinegar, mustard, agave and olive oil. Shake well until combined. Serve over mixed greens. Store in mason jar in refrigerator for up to 3 days.

@@ -1,0 +1,17 @@
+## Strawberry Filling
+
+[23e1dfbc6e](http://www.foodnetwork.com/recipes/strawberry-filling-recipe.html)
+
+### Ingredients
+
+ - 4 cup of strawberries, raw
+
+ - 1 cup of alcoholic beverage, distilled, rum, 80 proof
+
+ - 4 cup of sugars, granulated
+
+ - 1 to 2 tablespoon of orange juice, raw
+
+### Instructions
+
+Cut and slice 4 cups fresh strawberries and add to a medium bowl. Add 1 cup rum and 2 cups sugar and stir to combine. Let mixture sit overnight covered in the refrigerator. Remove strawberries from the refrigerator and place in a medium saucepan. Add the remaining 2 cups of sugar and the orange zest and cook over low heat for about 20 minutes. This recipe was provided by professional chefs and has been scaled down from a bulk recipe provided by a restaurant. The Food Network Kitchens chefs have not tested this recipe, in the proportions indicated, and therefore, we cannot make any representation as to the results.

@@ -1,0 +1,41 @@
+## Easy Vegan Spice Thins (No Chill Time)
+
+[2aa5aa9ea3](http://www.food.com/recipe/easy-vegan-spice-thins-no-chill-time-468307)
+
+### Ingredients
+
+ - 23 cup of wheat flour, white, all-purpose, unenriched
+
+ - 13 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 14 teaspoon of pumpkin, raw
+
+ - 34 teaspoon of spices, cinnamon, ground
+
+ - 18 teaspoon of spices, ginger, ground
+
+ - 18 teaspoon of spices, nutmeg, ground
+
+ - 18 teaspoon of spices, cloves, ground
+
+ - 116 teaspoon of spices, pepper, black
+
+ - 1 pinch of salt, table
+
+ - 18 cup of oil, olive, salad or cooking
+
+ - 1 tablespoon of honey
+
+ - 14 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 12 tablespoon of sugars, brown
+
+ - 12 tablespoon of sugars, brown
+
+ - 12 teaspoon of vanilla extract
+
+### Instructions
+
+In a big bow combine, flours, baking powder, salt and spices. In another bowl combine oil, honey or agave syrup and enough milk to make 1/3 cup. Then add sugars and vanilla bean paste or extract. Stir to combine. Add the wet to the dry ingredients and knead into a smooth, soft dough. If it's too sticky, add a tbs of flour at a time until you can handle the dough well. Roll out thinly (to about 2 mm/0.07 inch) and cut out desired shapes. I used a cookie cutter of about 6 cm/2.5 inches in diameter. Place cookies on a paper-lined or greased baking sheet and bake in the pre heated oven at 180C/350F for 10-12 minutes or until browned around the edges. Allow to cool on the baking sheet for 5 minutes, then remove to a wire rack to cool completely. Enjoy!

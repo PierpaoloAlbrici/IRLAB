@@ -1,0 +1,25 @@
+## East Indian Farina Hot Cereal (Payasam)
+
+[ade2ad09fd](http://www.food.com/recipe/east-indian-farina-hot-cereal-payasam-159747)
+
+### Ingredients
+
+ - 1 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 13 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 14 teaspoon of salt, table
+
+ - 1 1/2 tablespoon of butter, without salt
+
+ - 14 teaspoon of spices, cardamom
+
+ - 12 tablespoon of sugars, granulated
+
+ - 2 tablespoon of nuts, almonds
+
+ - 2 tablespoon of raisins, seeded
+
+### Instructions
+
+In saucepan bring milk to almost boil and stir in the cereal using a fork to break up the clumps. Stir in the salt. Reduce heat, cover and simmer for 5 minutes for farina, 10 minutes for rice meal. In a small saute pan, melt the butter on medium heat and add the cardamon, cane sugar and raw nuts. Toast for about 2 minutes, being careful not to burn. Add the raisins to the butter mixture and heat through. Once the hot cereal is cooked, stir the cardamom/nut mixture into the cereal. Serve piping hot. Mmmm!

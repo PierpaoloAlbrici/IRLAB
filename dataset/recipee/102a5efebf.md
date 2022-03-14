@@ -1,0 +1,17 @@
+## Sausage Stuffed Mushrooms Recipe
+
+[102a5efebf](http://cookeatshare.com/recipes/sausage-stuffed-mushrooms-3168)
+
+### Ingredients
+
+ - 1 1/2 pound of mushrooms, white, raw
+
+ - 1/2 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 1/2 cup of cheese, mozzarella, low sodium
+
+ - 1/4 cup of bread crumbs, dry, grated, plain
+
+### Instructions
+
+1. Remove stems from mushrooms, chop stems and set aside. 2. In skillet over medium heat, cook sausage, remove to paper towel, reserve 2 Tbsp. drippings to simmer mushroom stems about 5 min. 3. Remove skillet from heat, add in sausage, cheese and crumbs, stuff mushrooms. Bake at 450 degrees for about 10 min.

@@ -1,0 +1,23 @@
+## A Wild Guess Carrot Salad
+
+[0cd4fbd93f](http://www.food.com/recipe/a-wild-guess-carrot-salad-61677)
+
+### Ingredients
+
+ - 3 cup of carrots, raw
+
+ - 34 cup of raisins, seeded
+
+ - 14 cup of salad dressing, mayonnaise, regular
+
+ - 1 tablespoon of cream, whipped, cream topping, pressurized
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 1 teaspoon of spices, garlic powder
+
+ - 1 teaspoon of sugars, granulated
+
+### Instructions
+
+Plump the raisins in warm water until full. Grate the carrots, and add the raisins, drained well. Dust the carrot and raisin mix with the cinnamon and stir well. Mix the mayo, cream, garlic and sugar together. Put the dressing over the salad and stir well. Chill overnight and serve cold.

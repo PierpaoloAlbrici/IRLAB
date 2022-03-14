@@ -1,0 +1,29 @@
+## Herb Cheese Sauce for Fish
+
+[1cfb2ebef2](http://www.food.com/recipe/herb-cheese-sauce-for-fish-251802)
+
+### Ingredients
+
+ - 2 tablespoon of butter, without salt
+
+ - 2 teaspoon of lemon juice, raw
+
+ - 2 tablespoon of cream, fluid, heavy whipping
+
+ - 13 cup of cheese, cottage, creamed, large or small curd
+
+ - 4 teaspoon of cheese, parmesan, hard
+
+ - 1 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of parsley, fresh
+
+ - 12 teaspoon of dill weed, fresh
+
+ - 14 teaspoon of spices, basil, dried
+
+ - 14 teaspoon of spices, pepper, black
+
+### Instructions
+
+Combine all ingredients in a heavy pan. Cook over low heat, stirring frequently, until cheese melts and is thick. To serve, spoon it over cooked fish fillets.

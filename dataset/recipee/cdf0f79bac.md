@@ -1,0 +1,19 @@
+## Red, White, and Blue Fruit Cups
+
+[cdf0f79bac](http://www.foodnetwork.com/recipes/rachael-ray/red-white-and-blue-fruit-cups-recipe.html)
+
+### Ingredients
+
+ - 1 pint of strawberries, raw
+
+ - 1 pint of blueberries, raw
+
+ - 1 pint of blackberries, raw
+
+ - 1/4 cup of sugars, granulated
+
+ - 1 pint of cream, fluid, heavy whipping
+
+### Instructions
+
+Slice strawberries and combine in a bowl with blue and/or blackberries. Sprinkle berries with two teaspoons sugar. Whip cream until soft peaks form and sweeten with remaining sugar. Serve berries in small cups with generous spoonfuls of fresh whipped cream.

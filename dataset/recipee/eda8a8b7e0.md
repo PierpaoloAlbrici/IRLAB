@@ -1,0 +1,23 @@
+## Better Buttermilk Biscuits
+
+[eda8a8b7e0](http://www.foodnetwork.com/recipes/tyler-florence/better-buttermilk-biscuits-recipe.html)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 teaspoon of salt, table
+
+ - 2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1/2 teaspoon of leavening agents, baking soda
+
+ - 1/2 cup of shortening, vegetable, household, composite
+
+ - 3/4 cup of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+In a mixing bowl, combine dry ingredients together with a fork. Cut in the shortening using a pastry blender until mixture resembles coarse crumbs. Make a well in the center and add buttermilk. Quickly fold dry ingredients into buttermilk with your hands until a sticky dough forms. Turn dough out onto floured surface. Gently fold the dough over itself 3 or 4 times to create layers. Roll dough out to 3/4-inch thick. Cut with a 3-inch biscuit cutter. Transfer dough rounds to a sheet pan. Gather scraps and repeat. Make a dimple in the center to help the top rise evenly. Brush with butter. Bake for 15 minutes in a preheated 400 degree oven until golden brown.

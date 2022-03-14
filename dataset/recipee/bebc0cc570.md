@@ -1,0 +1,13 @@
+## Rice
+
+[bebc0cc570](http://www.food.com/recipe/rice-355236)
+
+### Ingredients
+
+ - 2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 3 cup of water, bottled, generic
+
+### Instructions
+
+Put rice and water in a deep saucepan. Do not cover. Bring water to a boil over high heat. Turn down to medium heat and cook rice for 10 minutes. Cover and simmer for 20 minutes or until all water has been absorbed.

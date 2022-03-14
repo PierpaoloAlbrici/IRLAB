@@ -1,0 +1,21 @@
+## Cajun Pot RoastThis is an Extremely Versatile and Delicious Recipe.
+
+[ed49fbc9e2](http://www.epicurious.com/recipes/food/views/cajun-pot-roast-this-is-an-extremely-versatile-and-delicious-recipe-391455)
+
+### Ingredients
+
+ - 4 pound of beef, grass-fed, ground, raw
+
+ - 2 1/4 cup of salad dressing, italian dressing, commercial, regular
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of spices, pepper, black
+
+ - 1/4 cup of water, bottled, generic
+
+### Instructions
+
+Combine the roast and 2 cups of the salad dressing in a large plastic storage bag. Squeeze out excess air, seal tightly, and massage to coat the meat all over. Marinate in the refrigerator for at least 2 hours and up to overnight, turning the roast over at least once. Preheat a heavy (preferably cast-iron) Dutch oven over high heat. Add the oil. Remove the roast from the marinade, and add it to the pan. Brown on all sides, 4 to 5 minutes. Sprinkle the meat with the seasoned salt and pepper. Add the water and the remaining 1/4 cup salad dressing. Cover, reduce the heat to low, and cook until very tender, about 3 hours, checking occasionally to see if additional water is needed.

@@ -1,0 +1,15 @@
+## Scallion Cream Cheese, Bagel Shop Style
+
+[c2c8dd3b1a](http://cooking.nytimes.com/recipes/1016406)
+
+### Ingredients
+
+ - 1 pound of cheese, parmesan, hard
+
+ - 1/2 to 3/4 cup of cream, fluid, heavy whipping
+
+ - 2 tablespoon of chives, raw
+
+### Instructions
+
+Place cream cheese in a stand mixer fitted with the paddle attachment. Mix at low speed until smooth. Pour in 1/2 cup heavy cream and raise the speed to medium-low. Mix until whipped and fluffy, adding more cream if needed to loosen the mixture. At low speed, fold in scallions just until combined. Scrape into a serving bowl and keep refrigerated until ready to serve. (Can be made up to 1 day ahead.)

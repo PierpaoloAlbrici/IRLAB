@@ -1,0 +1,21 @@
+## Crunchy Chicken Salad
+
+[4f1fbce11e](http://www.food.com/recipe/crunchy-chicken-salad-30599)
+
+### Ingredients
+
+ - 4 cup of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 1 cup of nuts, pecans
+
+ - 1 cup of grapes, red or green (european type, such as thompson seedless), raw
+
+ - 1 cup of apples, raw, with skin
+
+ - 1 cup of celery, raw
+
+ - 1 cup of salad dressing, mayonnaise, regular
+
+### Instructions
+
+Combine all ingredients. Mix well. Chill prior to serving. Serve with french bread, pita, or atop a salad.

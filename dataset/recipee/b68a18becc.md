@@ -1,0 +1,33 @@
+## Chocolate Date,oat & Nut Bars
+
+[b68a18becc](http://www.food.com/recipe/chocolate-date-oat-nut-bars-35092)
+
+### Ingredients
+
+ - 2 1/2 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 23 cup of water, bottled, generic
+
+ - 1 1/2 cup of sugars, granulated
+
+ - 1 1/2 cup of dates, deglet noor
+
+ - 1 cup of butter, without salt
+
+ - 1 teaspoon of vanilla extract
+
+ - 1 3/4 cup of sugars, brown
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 12 teaspoon of salt, table
+
+ - 12 teaspoon of leavening agents, baking soda
+
+ - 1 cup of nuts, walnuts, english
+
+ - 1 1/2 cup of oats
+
+### Instructions
+
+Preheat oven to 350. Melt the chocolate in hot water over low heat and add granulated sugar; stir until dissolved. Add dates and cook over low heat for 5 minutes. Blend in 1/4 cup butter and vanilla extract. Let mixture cool. Cream 3/4 cup butter and the brown sugar until fluffy. Sift together the flour, salt and baking soda. Add to creamed mixture and blend well, then add in the nuts and oats. Mix until crumbly. Press 1/2 onto bottom of a greased 13 x 9 x 2-inch pan. Add the date mixture, then top with remainder of nut mixture. Bake 30 minutes.

@@ -1,0 +1,21 @@
+## Bayou Broccoli Recipe
+
+[6dedbe191e](http://cookeatshare.com/recipes/bayou-broccoli-80530)
+
+### Ingredients
+
+ - 3/4 pound of broccoli, raw
+
+ - 6 ounce of cheese, cheddar
+
+ - 1/3 cup of butter, without salt
+
+ - 5/8 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 1 1/4 cup of water, bottled, generic
+
+ - 5/8 teaspoon of a cajun life, all purpose cajun seasoning, upc: 095225879272
+
+### Instructions
+
+Preheat oven to 375 F. Mix cooked rice and well-liquid removed cooked broccoli. Add in margarine, all but 1 c. of the shredded cheese, and seasoning; mix well. Place in greased casserole, top with remaining cheese, and bake 20 to 30 min or possibly till top is golden and bubbly. Serves 10.

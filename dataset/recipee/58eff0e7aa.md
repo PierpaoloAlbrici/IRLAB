@@ -1,0 +1,29 @@
+## Stir-Fried Szechuan Steak
+
+[58eff0e7aa](http://www.food.com/recipe/stir-fried-szechuan-steak-362789)
+
+### Ingredients
+
+ - 1 pound of beef, flank, steak, separable lean and fat, trimmed to 0" fat, all grades, cooked, broiled
+
+ - 1 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of spices, pepper, red or cayenne
+
+ - 14 cup of soy sauce made from soy (tamari)
+
+ - 2 teaspoon of cornstarch
+
+ - 1 teaspoon of sugars, granulated
+
+ - 2 teaspoon of oil, sesame, salad or cooking
+
+ - 2 cup of sugars, granulated
+
+ - 14 cup of spices, coriander seed
+
+ - 3 tablespoon of oil, corn, peanut, and olive
+
+### Instructions
+
+Cut steak diagonally across the grain into 1-inch-thick slices. Combine steak, garlic, and red pepper in a bowl; toss well to coat. Combine soy sauce, cornstarch, and sugar in a small bowl, stirring with a whisk until smooth. Heat sesame oil in a large nonstick skillet over medium-high heat; add snap peas to pan, and stir-fry 1 to 2 minutes. Add meat mixture to pan, and stir-fry 2 to 4 minutes. Add soy sauce mixture to pan, and stir-fry 1 to 2 minutes or until sauce is slightly thick. Top each serving with 1 tablespoon fresh cilantro and 2 1/4 teaspoons chopped peanuts.

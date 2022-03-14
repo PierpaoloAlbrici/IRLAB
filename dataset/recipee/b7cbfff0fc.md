@@ -1,0 +1,23 @@
+## Inspired Trail Mix
+
+[b7cbfff0fc](http://www.foodnetwork.com/recipes/inspired-trail-mix-recipe.html)
+
+### Ingredients
+
+ - 1 cup of nuts, cashew nuts, raw
+
+ - 1 tablespoon of syrup, maple, canadian
+
+ - 2 pinch of spices, cinnamon, ground
+
+ - 1 pinch of spices, pepper, red or cayenne
+
+ - 1 pinch of salt, table
+
+ - 1/3 cup of apricots, dried, sulfured, uncooked
+
+ - 1/3 cup of raisins, seeded
+
+### Instructions
+
+Preheat the oven to 350 degrees F. Line a baking sheet with parchment paper. In a bowl, toss together the cashews, maple syrup, cinnamon, cayenne, and salt until well mixed. Spread the mixture onto the baking sheet. Bake until golden brown, stirring half way through, about 10 minutes. Remove from the oven and scrape the nuts onto a plate to cool. When the nuts are cool, put them into a bowl and toss them together with the apricots and raisins. Serving suggestions: Divide the mix into small individual containers for snacking. Spoon a few tablespoons over a serving of yogurt or frozen yogurt. Add a few tablespoons to a bowl of fruit salad. Calories 130; Total Fat 7.5 g; (Sat Fat 1.3 g, Mono Fat 4 g, Poly Fat 1.3 g) ; Protein 3.5 g; Carb 15 g; Fiber 1 g; Cholesterol 0 mg; Sodium 40 mg

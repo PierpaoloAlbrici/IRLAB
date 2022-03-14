@@ -1,0 +1,25 @@
+## Apple Torte
+
+[1adbe7cedb](http://www.food.com/recipe/apple-torte-136991)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of sugars, brown
+
+ - 1 cup of butter, without salt
+
+ - 14 cup of nuts, almonds
+
+ - 10 cup of apples, raw, with skin
+
+ - 2 tablespoon of lemon juice, raw
+
+ - 1 teaspoon of spices, nutmeg, ground
+
+ - 2 tablespoon of sugars, powdered
+
+### Instructions
+
+Pre-heat oven to 350 degrees. Place 10-inch (3 L) springform pan in centre of large piece of heavy-duty foil; press up around pan. Set aside. In bowl, whisk flour with brown sugar. Using pastry blender or 2 knives, cut in butter until in pea-size pieces. Press three-quarters over bottom and up side of prepared pan. Stir almonds into remaining crumb mixture; set aside. In bowl, toss apples, lemon juice and nutmeg; spread over pastry, pressing gently. Sprinkle with remaining crumb mixture. Bake in centre of 350F (180C) oven until golden and apples are tender, 1-1/2 hours. Run knife around edge; let cool in pan on rack. Dust with powdered sugar.

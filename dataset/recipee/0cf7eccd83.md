@@ -1,0 +1,19 @@
+## Backyard Pizza Dough Recipe
+
+[0cf7eccd83](http://cookeatshare.com/recipes/backyard-pizza-dough-73121)
+
+### Ingredients
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 tablespoon of leavening agents, yeast, baker's, active dry
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 cup of water, bottled, generic
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+In a large bowl stir together the water, yeast, and sugar and let stand till foamy, about 10 min. In a large bowl, whisk together 2 1/4 c. of the flour and salt. Using the handle end of a wooden spoon slowly add in yeast mix, and stir constantly till mix forms a dough. Turn out onto a floured surface. Knead dough, till smooth and elastic, incorporating as much of remaining 1/4 c. of flour as necessary to prevent dough from sticking, about 5 - 10 min. Lightly oil a large, deep bowl. Put dough in bowl and turn to coat with oil. Cover bowl with tea towel or possibly plastic wrap and let dough rise in a hot place for 1 hour, or possibly till doubled in bulk. Using fist, punch dough down; turn out onto floured surface. Divide dough into 4 equal pcs; knead each briefly till smooth. Cover with towel; let rise till almost doubled, about 30 min. Makes sufficient dough for four 10-inch thin-crust pizzas. Dough balls can be tightly wrapped in plastic and refrigerated one week, or possibly frzn up to 1 month. On a lightly floured surface (preferably a chilled baking sheet or possibly tray) using a floured rolling pin, roll out 1 ball of dough 1/8 inch thick (about 10 inches in diameter). Using a pastry brush, lightly brush upper crust with oil. If it's a very warm day, the dough may get too soft to transfer easily to grill, if so, pop the tray into the freezer till hard, about 15 min. Prepare grill and preheat to medium. Trying not to stretch the dough, carefully transfer it, oiled side down, to rack of grill. Grill crust, covered, till undersides are golden, about 3 min. (If one side of grill is hotter than the other, rotate the pizzas partway through cooking.) Brush upper crust with oil and flip crusts over with 2 metal spatulas. Top each crust with desired toppings. Grill, covered, about 5 min more, or possibly till undersides are golden, cheese is melted and toppings are heated through. Makes four 10-inch pizza crusts.

@@ -1,0 +1,21 @@
+## Pumpkin Pie Oatmeal in the Crockpot
+
+[c8ca2bba7c](http://tastykitchen.com/recipes/breakfastbrunch/pumpkin-pie-oatmeal-in-the-crockpot/)
+
+### Ingredients
+
+ - 1 cup of oats
+
+ - 2 cup of water, bottled, generic
+
+ - 2 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 cup of pumpkin, raw
+
+ - 1 teaspoon of pumpkin, raw
+
+ - 1 dash of spices, cinnamon, ground
+
+### Instructions
+
+Throw everything in the crockpot the night before (see note below regarding prep for the crock, which you would need to do before adding ingredients), and whisk, whisk, whisk! As for the milk, I used skim milk, but you use whatever kind you drink (you can also use soy, almond or rice milk). I love cinnamon, so I threw in a dash. You can omit it entirely or add a little more. Do whatever floats your boat. Cook on low for 5 9 hours. The cooking time depends on your crockpot and how you like your oatmeal. I prefer mine thicker so that I can thin it to the best texture. After cooking, give the oatmeal a good strong stir to make sure everything is nicely incorporated. The oatmeal will be very thick; I thinned mine with a little milk. Now, add your toppings! Whatever toppings your heart may desire! Nuts, dried fruit, butter, sugar, honey, molasses or maple syrup! This recipe freezes very well (I had a bowl of my previously frozen oatmeal this morning). Just divy it up into small containers, cool it in the refrigerator, then toss them in the freezer for another morning. This recipe is sure to please any oatmeal fan. Im currently playing with the recipe to make all sorts of flavors (my current favorite is banana nut. I will post that one later). * NOTE: use whatever method you wish to make your crockpot non-stick (maybe you already have a non-stick one. Use liners, non-stick spray, whatevs. I did not use anything and it did stick. I simply let it soak with soapy water until I could scrub it clean, but some people may not have the affinity for washing dishes that I have.

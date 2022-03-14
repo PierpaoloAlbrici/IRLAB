@@ -1,0 +1,21 @@
+## Chewy Oatmeal Cookies
+
+[dceeefff10](http://www.food.com/recipe/chewy-oatmeal-cookies-24239)
+
+### Ingredients
+
+ - 1 1/2 cup of margarine, regular, 80% fat, composite, stick, without salt
+
+ - 1 1/2 cup of sugars, brown
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 teaspoon of leavening agents, baking soda
+
+ - 3 cup of oats
+
+ - 14 cup of sugars, granulated
+
+### Instructions
+
+Cream margarine and brown sugar. Combine flour and baking soda. Add to creamed mixture, a little at a time, stirring. Add oats and mix well. Shape into 1-1/2 inch balls; roll in the sugar. Place 2 inches apart on ungreased cookie sheets. Flatten with a glass. Bake at 350* for 10 minutes or until golden. Cool on wire racks.

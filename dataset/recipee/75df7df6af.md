@@ -1,0 +1,21 @@
+## Chocolate Fondue
+
+[75df7df6af](http://www.myrecipes.com/recipe/chocolate-fondue-5)
+
+### Ingredients
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/2 cup of sugars, powdered
+
+ - 2 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 2 tablespoon of syrups, corn, light
+
+ - 2 teaspoon of vanilla extract
+
+ - 5 ounce of candies, semisweet chocolate
+
+### Instructions
+
+Combine first 5 ingredients in a large saucepan over medium heat. Bring to a simmer; cook 5 minutes, stirring constantly. Reduce heat to medium-low; cook for 2 minutes or until mixture is smooth, stirring constantly. Place the chocolate in a medium bowl. Pour milk mixture over chocolate, and stir until smooth. Transfer chocolate mixture to a fondue pot. Keep warm over a low flame.

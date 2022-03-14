@@ -1,0 +1,17 @@
+## Homemade Ricotta
+
+[fb32acf8a9](http://tastykitchen.com/recipes/homemade-ingredients/homemade-ricotta-5/)
+
+### Ingredients
+
+ - 1 cup of cream, fluid, heavy whipping
+
+ - 4 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/2 teaspoon of salt, table
+
+ - 2 tablespoon of lemon juice, raw
+
+### Instructions
+
+Line a strainer with a couple layers of damp paper towel or cheesecloth, and set inside a large bowl. In a saucepan, combine heavy cream, milk, and salt. Bring to a boil over medium high heat. Once boiling, remove the pan from the heat and stir in the vinegar or lemon juice. Let the mixture sit for 2 minutes, then pour into the strainer and let drain for 20 minutes. Its ready for use! Note: Because there are no stabilizers, a little liquid will always pool on the sides. Just stir it in.

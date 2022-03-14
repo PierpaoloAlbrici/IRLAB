@@ -1,0 +1,19 @@
+## Quick Peanut Cabbage
+
+[5fa3b09fec](http://www.food.com/recipe/quick-peanut-cabbage-35778)
+
+### Ingredients
+
+ - 2 cup of cabbage, raw
+
+ - 1 tablespoon of peanut butter, smooth style, without salt
+
+ - 1 tablespoon of apple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 1 tablespoon of vinegar, balsamic
+
+ - 18 teaspoon of spices, pepper, black
+
+### Instructions
+
+Put all the ingredients in a bowl. Cover and microwave on high for 4 minutes, or until the cabbage is limp and the peanut butter is melted. Stir to cover the cabbage with sauce, and serve.

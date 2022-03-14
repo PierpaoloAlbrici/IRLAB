@@ -1,0 +1,27 @@
+## Caribbean Shrimp and Black Bean Salad
+
+[9dcdbeefb0](https://recipeland.com/recipe/v/caribbean-shrimp-black-bean-sal-44733)
+
+### Ingredients
+
+ - 1 pound of crustaceans, shrimp, raw (not previously frozen)
+
+ - 15 ounce of beans, snap, green, raw
+
+ - 1/2 cup of celery, raw
+
+ - 13 cup of fresh red onions, upc: 888670013229
+
+ - 23 cup of sauce, salsa, ready-to-serve
+
+ - 2 tablespoon of spices, coriander seed
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 2 tablespoon of honey
+
+ - 1 cup of tomatoes, red, ripe, raw, year round average
+
+### Instructions
+
+Combine shrimp, beans, pepper, celery and onion in a large bowl. Combine remaining ingredients (except tomatoes), add 1/2 teaspoon salt and mix well. Pour over shrimp mixture; toss lightly to coat. Cover and chill at least 2 hours or up to 24 hours, tossing lightly occasionally. Spoon salad on lettuce lined plates, garnish with tomatoes.

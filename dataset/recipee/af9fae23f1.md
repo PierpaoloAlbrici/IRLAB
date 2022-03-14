@@ -1,0 +1,17 @@
+## Penn State Mix Ice Cream Recipe
+
+[af9fae23f1](http://cookeatshare.com/recipes/penn-state-mix-ice-cream-11023)
+
+### Ingredients
+
+ - 1 1/2 cup of milk, canned, condensed, sweetened
+
+ - 2 2/3 cup of cream, fluid, heavy whipping
+
+ - 3 1/2 cup of milk, buttermilk, fluid, cultured, lowfat
+
+ - 3/4 cup of sugars, granulated
+
+### Instructions
+
+Stir condensed lowfat milk into whole lowfat milk. It's sticky and requires scraping the sides and bottom while mixing to blend. Dissolve sugar into this mix, then add in cream. Refrigeratemix. When mix is cool add in to freezer and follow manufacturer instructions.

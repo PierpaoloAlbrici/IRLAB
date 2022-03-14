@@ -1,0 +1,27 @@
+## Mushrooms in Cranberry Reduction
+
+[ec46c1bf1b](http://www.food.com/recipe/mushrooms-in-cranberry-reduction-202157)
+
+### Ingredients
+
+ - 1 teaspoon of spices, garlic powder
+
+ - 2 tablespoon of shallots, raw
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+ - 12 pound of mushrooms, white, raw
+
+ - 12 cup of cranberry juice, unsweetened
+
+ - 2 tablespoon of vinegar, balsamic
+
+ - 12 teaspoon of spices, tarragon, dried
+
+ - 14 teaspoon of salt, table
+
+ - 14 teaspoon of spices, pepper, black
+
+### Instructions
+
+In a non-stick pan saute the garlic and shallots in the olive oil. Do not brown them. When the shallots and garlic are soft (about 3-5 minutes), add the mushrooms. Stir gently until mushrooms soften and give up their liquid. Turn up the heat to medium and add the juice, vinegar, tarragon, salt, and pepper. Bring to brisk boil and reduce the liquid to about 1/3 cup, stirring to keep ingredients from sticking. Either spoon over sliced steak or serve separately.

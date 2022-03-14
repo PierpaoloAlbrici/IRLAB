@@ -1,0 +1,21 @@
+## Corned Beef Potato Rosti
+
+[d58ee38eec](http://www.food.com/recipe/corned-beef-potato-rosti-362504)
+
+### Ingredients
+
+ - 1 pound of potatoes, raw, skin
+
+ - 12 teaspoon of beef, grass-fed, ground, raw
+
+ - 12 teaspoon of spices, pepper, black
+
+ - 2-3 teaspoon of oil, olive, salad or cooking
+
+ - 12 cup of onions, raw
+
+ - 4 ounce of corn, sweet, white, raw
+
+### Instructions
+
+Peel potatoes and grate on the large holes of a box grater. Add salt and pepper to taste and toss to combine; set aside. Heat oil in a medium nonstick pan over medium heat. Once shimmering, add onion and cook until soft, about 4 minutes. Sprinkle 1/2 of the potatoes over the onions and stir to combine. Press with a spatula into an even layer. Sprinkle all of the corned beef evenly over the potatoes, then top with remaining potatoes and press again with the spatula to form a large potato cake. Cook undisturbed until the underside is golden, about 10 to 12 minutes. (This is the key to helping it hold together, don't play with it! ). To flip the rosti, place a large plate over the potatoes and invert onto the plate. Return the pan to medium heat and add remaining oil. Slide the rosti back into the pan, reshape if necessary with the spatula, and cook the second side until golden, about 10 to 12 minutes. Slide onto a cutting board, slice, and serve.

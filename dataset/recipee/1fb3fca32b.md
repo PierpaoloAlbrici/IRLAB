@@ -1,0 +1,29 @@
+## Fabulous Fig Bread
+
+[1fb3fca32b](https://recipeland.com/recipe/v/fabulous-fig-bread-32639)
+
+### Ingredients
+
+ - 1 cup of figs, dried, uncooked
+
+ - 1 cup of water, bottled, generic
+
+ - 3/4 cup of nuts, pistachio nuts, raw
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 1/4 teaspoon of salt, table
+
+ - 4 tablespoon of butter, without salt
+
+ - 1 cup of sugars, granulated
+
+ - 3 tablespoon of egg substitute, powder
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+In a medium-sized heat-proof bowl, combine the figs and pistachios, add boiling water and let cool to room temperature, about 1 hour. Position a rack in the center of the oven and preheat to 350F (180C). Grease an 8 1/2 inch by 4 1/2 inch loaf pan. In medium sized bowl, combine the flour, baking soda and salt. In a large bowl, beat the butter until fluffy. Gradually beat in the sugar. Add the egg and vanilla and beat for 1 to 2 minutes, or until lightened. Add the dry ingredients and beat until just blended. With a spoon, blend in the fig mixture. Turn into the prepared pan and bake 1 to 1 1/4 hours, or until the bread just begins to pull away from the sides of the pan, and the top springs back when lightly touched. Cool in pan on a rack for 15 minutes, and then turn out and cool completely. Wrap in plastic and store overnight before serving. Cut into thin slices.

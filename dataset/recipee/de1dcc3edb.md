@@ -1,0 +1,21 @@
+## Ina's Peanut Butter Frosting
+
+[de1dcc3edb](http://www.food.com/recipe/inas-peanut-butter-frosting-288930)
+
+### Ingredients
+
+ - 1 cup of sugars, granulated
+
+ - 1 cup of peanut butter, smooth style, without salt
+
+ - 5 tablespoon of butter, without salt
+
+ - 34 teaspoon of vanilla extract
+
+ - 14 teaspoon of salt, table
+
+ - 13 cup of cream, fluid, heavy whipping
+
+### Instructions
+
+Place the confectioners' sugar, peanut butter, butter, vanilla, and salt in the bowl of an electric mixer fitted with a paddle attachment. Mix on medium-low speed until creamy, scraping down the bowl with a rubber spatula as you work. Add the cream and beat on high speed until the mixture is light and smooth.

@@ -1,0 +1,23 @@
+## Flourless Fried Okra
+
+[73dac1dbf6](http://www.food.com/recipe/flourless-fried-okra-461747)
+
+### Ingredients
+
+ - 1 cup of oil, olive, salad or cooking
+
+ - 12 cup of rice flour, white, unenriched
+
+ - 1 1/4 cup of cornmeal, degermed, unenriched, yellow
+
+ - 1 tablespoon of leavening agents, yeast, baker's, active dry
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of xanthan gum, upc: 071518021764
+
+ - 1 quart of okra, raw
+
+### Instructions
+
+Heat canola oil or high-heat tolerant vegetable oil (not olive oil) in a large skillet until the end of a wooden spoon sizzles and bubbles when you place it in the soil. Oil should be about a half inch deep in the skillet. While the oil is heating, combine the rice flour, cornmeal, yeast, sea salt, and xanthan gum in a plate. Stir with a fork until well mixed. Place the okra in a single layer on top of the dry mixture. Mash it gently with a fork to flatten it and coat both sides with the mix. Heat the okra pieces in a single layer in the oil, watching closely and turning when they are brown and almost crisp. As the pieces are done, place them on a paper towel lined platter to drain. Watch out! You'll eat them all before supper if you're not careful!

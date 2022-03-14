@@ -1,0 +1,17 @@
+## Five Minute Berry Ice Cream
+
+[ffde39a0da](http://tastykitchen.com/recipes/desserts/five-minute-berry-e2809cice-creame2809d/)
+
+### Ingredients
+
+ - 1 cup of goji berries, dried
+
+ - 3 tablespoon of honey
+
+ - 1 teaspoon of vanilla extract
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Put all ingredients in the bowl of a food processor. Blend in 20-second intervals until creamy.

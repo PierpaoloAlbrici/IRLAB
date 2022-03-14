@@ -1,0 +1,19 @@
+## Almond Butter Spritz Cookies Recipe
+
+[ee3d8ccf67](http://cookeatshare.com/recipes/almond-butter-spritz-cookies-63608)
+
+### Ingredients
+
+ - 1/4 pound of nuts, almonds
+
+ - 1 1/4 cup of sugars, granulated
+
+ - 1/2 cup of egg substitute, powder
+
+ - 1/2 pound of butter, without salt
+
+ - 3 cup of wheat flour, white, cake, enriched
+
+### Instructions
+
+Line two or possibly three cookie sheets or possibly jelly roll pans with parchment paper or possibly foil. Set racks on the top and lower thirds of the oven and preheat to325 degrees F. In a bowl, soften the almond paste with the sugar and half of the Large eggs. Beat in the butter gradually, then gradually add in the remaining Large eggs. Cream all of the ingredients till light. Add in the flour all at once and mix till all the elements adhere. Don't over mix. Pipe 1/2 inch shapes onto the prepared pans with a 1/2 inch star tube (Ateco 4). Bake for about 15 min. Cold on the pans Yield: about 72, 2 inch cookies

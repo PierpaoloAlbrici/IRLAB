@@ -1,0 +1,29 @@
+## Everyday Chocolate Brownies
+
+[cccc7e650e](http://www.food.com/recipe/everyday-chocolate-brownies-154216)
+
+### Ingredients
+
+ - 2 1/4 cup of sugars, granulated
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 cup of cocoa, dry powder, unsweetened
+
+ - 1 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 1/2 teaspoon of leavening agents, baking soda
+
+ - 18 teaspoon of salt, table
+
+ - 1 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 1 cup of tofu, raw, regular, prepared with calcium sulfate
+
+ - 34 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 2 teaspoon of vanilla extract
+
+### Instructions
+
+Preheat oven to 350 degrees F. Coat a 9 x 13 baking dish with cooking spray. Combine sugar, flour, cocoa powder, baking powder, baking soda, and salt in a large bowl. Combine applesauce, tofu, soymilk, and vanilla in a food processor, and process until well blended. Add tofu mixture to dry ingredients, and mix well. Scrape batter into prepared baking dish. Bake until batter is set and top is dry, 45 to 50 minutes. Cool in pan; cut into bars and serve. Per serving: 124 cal; 3g prot; 1g total fat (0 g sat fat); 29g carb; 0mg chol; 128 mg sod; 1g fiber; 20g sugars.

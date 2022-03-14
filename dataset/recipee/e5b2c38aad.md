@@ -1,0 +1,19 @@
+## Sweet Butter Pie Dough
+
+[e5b2c38aad](http://www.food.com/recipe/sweet-butter-pie-dough-123221)
+
+### Ingredients
+
+ - 1 3/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 teaspoon of salt, table
+
+ - 3 tablespoon of sugars, granulated
+
+ - 1 cup of butter, without salt
+
+ - 12 cup of water, bottled, generic
+
+### Instructions
+
+In a chilled bowl, mix the flour, salt and sugar. Add the butter, and work the mixture till it has a granule texture. Add the water all at once, and mix till it becomes a ball. (Do not overmix! ). Cover the ball in plastic wrap, and reserve for 1 hour. Needs to be cooked at 190 degrees Celsius/375 degrees Fahrenheit.

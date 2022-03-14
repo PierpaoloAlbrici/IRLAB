@@ -1,0 +1,17 @@
+## Ham Glaze
+
+[caca3a3ff2](http://www.food.com/recipe/ham-glaze-470662)
+
+### Ingredients
+
+ - 12 cup of pineapple juice, canned or bottled, unsweetened, without added ascorbic acid
+
+ - 1 cup of sugars, brown
+
+ - 2 tablespoon of cornstarch
+
+ - 1 tablespoon of mustard, prepared, yellow
+
+### Instructions
+
+Mix all ingredients together. Baste ham with glaze while baking. Apply the remainder when ham is done. Note: I typically double if not triple this recipe.

@@ -1,0 +1,31 @@
+## Chicken and Celery Casserole
+
+[ded0a4bf12](http://www.food.com/recipe/chicken-and-celery-casserole-50024)
+
+### Ingredients
+
+ - 2 cup of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 2 cup of celery, raw
+
+ - 12 cup of nuts, almonds
+
+ - 2 tablespoon of lemon juice, raw
+
+ - 1 cup of salad dressing, mayonnaise, regular
+
+ - 12 cup of cream, sour, cultured
+
+ - 12 cup of cheese, cheddar
+
+ - 12 teaspoon of salt, table
+
+ - 1 cup of potatoes, raw, skin
+
+ - 12 cup of cheese, cheddar
+
+ - 12 teaspoon of spices, paprika
+
+### Instructions
+
+Mix together all ingredients except the last three (potato chips, cheese and paprika topping). Pour into a lightly greased casserole dish. Sprinkle potato chips, cheese and paprika over the casserole. Bake at 350 for about 30-45 minutes, or until bubbly. Can be prepared a day ahead and refrigerated. Sprinkle on the topping right before baking.

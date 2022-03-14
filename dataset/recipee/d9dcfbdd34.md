@@ -1,0 +1,21 @@
+## Horseradish Sauce for Filet Mignon
+
+[d9dcfbdd34](http://www.food.com/recipe/horseradish-sauce-for-filet-mignon-316188)
+
+### Ingredients
+
+ - 1 1/2 cup of salad dressing, mayonnaise, regular
+
+ - 34 cup of cream, sour, cultured
+
+ - 14 teaspoon of sauce, worcestershire
+
+ - 6 tablespoon of horseradish, prepared
+
+ - 14 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+### Instructions
+
+Combine the mayonnaise, sour cream, Worcestershire sauce, horseradish, salt and pepper in a small bowl and whisk vigorously for 1 minute, or until the mixture is smooth and well blended. Cover and refrigerate until ready to serve. Makes about 2 1/3 cups.

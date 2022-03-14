@@ -1,0 +1,17 @@
+## Peppermint Patties
+
+[aeccff8e04](http://www.food.com/recipe/peppermint-patties-416351)
+
+### Ingredients
+
+ - 12 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 14 cup of sweetener, syrup, agave
+
+ - 12 teaspoon of oil, olive, salad or cooking
+
+ - 12 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+In a small bowl, combine coconut oil, agave and peppermint oil, mixing with a spoon. Smash clumps of coconut oil against side of bowl until mixture is smooth. Freeze mixture for a few minutes until it starts to harden, then remove from freezer. Use a 1.5 teaspoon ice cream scoop to measure out little balls onto a parchment lined plate. Place plate in freezer to firm up mint balls; when firm, remove from freezer. Squish balls down into flat little patties on parchment paper. Dip patties into melted chocolate (use spoon to drop patty into melted chocolate, dip and remove). Place patties on parchment paper to harden (takes 10 minutes though on a summer day you may need to refreeze).

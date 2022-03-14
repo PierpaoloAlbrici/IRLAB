@@ -1,0 +1,21 @@
+## Cod in Lemon Parsley Butter
+
+[1cf86bdbd6](https://recipeland.com/recipe/v/cod-lemon-parsley-butter-41968)
+
+### Ingredients
+
+ - 1/2 cup of margarine, regular, 80% fat, composite, stick, without salt
+
+ - 2 tablespoon of cornstarch
+
+ - 3 tablespoon of lemon juice, raw
+
+ - 1 teaspoon of spices, parsley, dried
+
+ - 1 dash of spices, pepper, black
+
+ - 2 pound of fish, cod, atlantic, raw
+
+### Instructions
+
+Place margarine in 2 quart (12 x 7-inch) glass baking dish. Microwave on Roast for 2 minutes or until melted. Blend in cornstarch, lemon juice, parsley and pepper. Dip each fillet in seasoned margarine. Arrange fillets with thick edges toward outside of dish. Cover with plastic wrap. Microwave on High for 8 or 9 minutes or until fish flakes easily. Let stand, covered, 5 minutes before serving.

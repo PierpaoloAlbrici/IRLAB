@@ -1,0 +1,13 @@
+## Chocolate Milk Shake
+
+[15d9af9dad](http://www.foodgeeks.com/recipes/18320)
+
+### Ingredients
+
+ - 1 cup of ice creams, vanilla
+
+ - 2 tablespoon of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Microwave ice cream until creamy. Add pudding; mix until dissolved.

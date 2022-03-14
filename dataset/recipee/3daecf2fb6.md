@@ -1,0 +1,25 @@
+## Greek Grilled Chicken Salad
+
+[3daecf2fb6](http://tastykitchen.com/recipes/salads/greek-grilled-chicken-salad-2/)
+
+### Ingredients
+
+ - 12 ounce of lettuce, cos or romaine, raw
+
+ - 12 ounce of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 2 cup of grapes, red or green (european type, such as thompson seedless), raw
+
+ - 3/4 cup of pickles, cucumber, sour
+
+ - 13 cup of cheese, feta
+
+ - 2 tablespoon of olives, ripe, canned (small-extra large)
+
+ - 1/4 cup of oil, olive, salad or cooking
+
+ - 1/4 teaspoon of spices, pepper, black
+
+### Instructions
+
+Combine lettuce, chicken, tomatoes, cucumber, feta and olives. Toss gently. Pour dressing over lettuce mixture, season with pepper, and toss gently.

@@ -1,0 +1,25 @@
+## Homemade Italian Sausage
+
+[a8abf67d1c](https://cookpad.com/us/recipes/339153-homemade-italian-sausage)
+
+### Ingredients
+
+ - 5 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 2 tablespoon of salt, table
+
+ - 2 teaspoon of spices, fennel seed
+
+ - 2 teaspoon of sugars, granulated
+
+ - 2 tablespoon of spices, pepper, red or cayenne
+
+ - 1/2 teaspoon of spices, caraway seed
+
+ - 2 teaspoon of spices, coriander seed
+
+ - 1 cup of soup, beef broth or bouillon canned, ready-to-serve
+
+### Instructions
+
+In a stand mixer, combine all ingredients. Mix well, until the mixture is very sticky, approximately 3 minutes. Seal in plastic wrap and refrigerate for 24 hours to allow the flavor to blend. Using a sausage stuffer, fill casings of desired size. Tie off into 8 inch links. Put in freezer bags and seal. Freeze for up to 6 months. NOTE : If you do not have a stuffer you can make them into patties.

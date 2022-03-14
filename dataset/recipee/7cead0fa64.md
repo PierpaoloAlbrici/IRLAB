@@ -1,0 +1,27 @@
+## Brussels and Shrooms Saute
+
+[7cead0fa64](http://www.food.com/recipe/brussels-and-shrooms-saute-139992)
+
+### Ingredients
+
+ - 3-4 tablespoon of butter, without salt
+
+ - 12-34 cup of onions, raw
+
+ - 10 ounce of mushrooms, white, raw
+
+ - 10 ounce of brussels sprouts, raw
+
+ - 14 teaspoon of salt, table
+
+ - 14 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of spices, pepper, black
+
+ - 1 teaspoon of parsley, fresh
+
+ - 1 tablespoon of cheese, parmesan, hard
+
+### Instructions
+
+In a large skillet, over med-high heat, melt butter. Saute onion in the butter for about 2 minutes. Add mushrooms and continue to saute for about 5 more minutes. Add thawed Brussels sprouts, salt, garlic powder, pepper and parsley to skillet and continue to cook for an additional 3-5 minutes or until desired tenderness is reached. Remove from heat and sprinkle with shredded parmesan, if desired; toss. Serve.

@@ -1,0 +1,33 @@
+## Biscuits All Covered In Gravy
+
+[03a4cacaa8](https://cookpad.com/us/recipes/334253-biscuits-all-covered-in-gravy)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 2 pinch of salt, table
+
+ - 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/4 cup of butter, without salt
+
+ - 1/2 pound of pork sausage, link/patty, unprepared
+
+ - 1/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/4 cup of butter, without salt
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/2 teaspoon of spices, pepper, black
+
+ - 1 dash of soy sauce made from soy (tamari)
+
+### Instructions
+
+Preheat oven to 450 Put sausage on stove at a medium heat Add dry biscuit ingredients to large bowl, stir together Add butter and milk, stir until all mixed Spoon biscuits onto greased cookie sheet Bake biscuits 12-16 minutes, flipping after 6-8 minutes Cook sausage until mostly done, chop into small pieces. Add butter to sausage, stir til all butter melted Sprinkle flour over sausage, stir Slowly add milk, constaltly stiring Add soy sauce, salt and peppr to taste

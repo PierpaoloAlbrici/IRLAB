@@ -1,0 +1,17 @@
+## Microwaveable Hot Cocoa (Single Serving)
+
+[7f6fddebde](http://www.food.com/recipe/microwaveable-hot-cocoa-single-serving-466197)
+
+### Ingredients
+
+ - 2 tablespoon of cocoa, dry powder, unsweetened
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Combine cocoa powder, vanilla extract, and sugar (or Equal) in a mug. Put 1 cup of milk into the microwave, and heat on HIGH for 1-1 1/2 minutes or until hot. Slowly combine hot milk with sugar and cocoa powder.

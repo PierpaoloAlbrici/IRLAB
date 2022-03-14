@@ -1,0 +1,17 @@
+## Barbecued Spareribs II
+
+[5ae01cd9da](https://recipeland.com/recipe/v/barbecued-spareribs-ii-68)
+
+### Ingredients
+
+ - 3 pound of pork, fresh, loin, tenderloin, separable lean only, raw
+
+ - 2 teaspoon of spices, chili powder
+
+ - 2 cup of sauce, barbecue
+
+ - 2 teaspoon of lemon juice, raw
+
+### Instructions
+
+Place spareribs in a large, shallow, heat-resistant, non- metallic baking dish. Heat, uncovered, in Microwave Oven 7 minutes. Turn spareribs over and heat an additional 7 minutes Drain off excess fat. Conmbine chili powder and barbecue sauce. Pour half of sauce over ribs. Heat, uncovered, in Microwave Oven 4 minutes. Turn spareribs again. Sprinkle with lemon juice if desired 9. Pour on remaining sauce and heat, uncovered, for 8 minutes or until fork-tender. Pork should always be cooked until well-done.

@@ -1,0 +1,21 @@
+## Apricot Date Dessert Recipe
+
+[206fbc0ddc](http://cookeatshare.com/recipes/apricot-date-dessert-68795)
+
+### Ingredients
+
+ - 2 tablespoon of butter, without salt
+
+ - 1/2 cup of oats
+
+ - 1/4 cup of sugars, brown
+
+ - 3 tablespoon of apricots, dried, sulfured, uncooked
+
+ - 1/2 cup of dates, deglet noor
+
+ - 1/2 cup of orange juice, raw
+
+### Instructions
+
+Preheat oven to 400 degrees. Place butter in an 8-inch square baking dish. Place baking dish in oven and heat butter; remove from oven. Stir oats, sugar and flour into melted butter; mix well. Bake mix till oats are toated, about 12 min, stirring mix twice while baking. While oat mix is baking, combine apricots, dates, and orange juice in a 1-qt saucepan. Cook over medium heat till mix boils and thickens, about 8 min, stirring frequently. Remove from heat. Place pan ina large bowl of ice water, and stir mix till it is slightly cooled, about 5minutes. Remove 1/3 of oatmeal mix from baking dish and set aside. Press remaining oatmeal proportionately on bottom of pan. Spoon apricots and dates proportionately over crust, spreading carefully. Sprinkle with reserved oatmeal. Serve hot with "rice" cream or possibly frzn yogurt. Makes 9 servings.

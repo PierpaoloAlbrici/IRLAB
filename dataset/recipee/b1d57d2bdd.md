@@ -1,0 +1,19 @@
+## Creamed Spinach
+
+[b1d57d2bdd](http://www.food.com/recipe/creamed-spinach-221551)
+
+### Ingredients
+
+ - 10 ounce of spinach, raw
+
+ - 3 ounce of cheese, parmesan, hard
+
+ - 1 tablespoon of butter, without salt
+
+ - 18 teaspoon of spices, nutmeg, ground
+
+ - 1 tablespoon of cheese, parmesan, hard
+
+### Instructions
+
+Preheat oven to 350 degrees. Cook spinach according to package directions and drain well (I microwave it in an uncovered container for about 4.5 minutes). Place spinach in a large bowl, and stir in softened cream cheese, melted butter and nutmeg. Spoon into small casserole coated in cooking spray. Sprinkle with parmesan cheese and bake, uncovered, for 20 minutes (or cook in covered dish in microwave for 5 minutes on high).

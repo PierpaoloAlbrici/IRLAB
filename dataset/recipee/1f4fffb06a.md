@@ -1,0 +1,21 @@
+## Easy Granola
+
+[1f4fffb06a](http://tastykitchen.com/recipes/breakfastbrunch/easy-granola-2/)
+
+### Ingredients
+
+ - 6 cup of oats
+
+ - 1 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 2 cup of seeds, sunflower seed kernels, dried
+
+ - 1 tablespoon of spices, cinnamon, ground
+
+ - 1 dash of salt, table
+
+ - 1 cup of honey
+
+### Instructions
+
+This recipe makes A LOT of granola. You can cut it half if needed. Heat oven to 350F. Put all of the dry ingredients in a large bowl. Add honey, mix well. Spread on a large baking sheet. Cook for 1 hour or until golden brown. Stir every 10 minutes.

@@ -1,0 +1,23 @@
+## Curry and Rosemary Fried Almonds
+
+[95a2dcfa9a](http://www.foodrepublic.com/recipes/curry-and-rosemary-fried-almonds-recipe/)
+
+### Ingredients
+
+ - 1 pint of oil, olive, salad or cooking
+
+ - 1 pint of oil, olive, salad or cooking
+
+ - 8 ounce of nuts, almonds
+
+ - 2 tablespoon of butter, without salt
+
+ - 1 tablespoon of spices, curry powder
+
+ - 2 tablespoon of spices, rosemary, dried
+
+ - 1 tablespoon of salt, table
+
+### Instructions
+
+Put the olive oil and vegetable oil in a clean, dry, medium-sized pot over a medium heat. Heat until the oil for approximately 1-2 minutes, or until a test almond dropped in the oil starts to slowly emit a stream of bubbles. Ready a plate lined with paper towels and a slotted spoon and add the almonds to the oil. Fry the almonds, stirring occasionally with a wooden spoon. When they start to emit a toasty aroma and are a medium-brown, remove the pan from the heat and start removing them from the pan. Some of the nuts in the pan may start to crack as you work. When that happens, move quickly, since they will burn if you leave them in the oil too long. Using a slotted spoon, remove the almonds from the oil and put them on the lined plate to drain. Allow the almonds to cool away from the range. Some of them might be slightly cracked, but over all they should be aromatic and smell a bit like toast. While the nuts are cooling, put a medium saute pan over a medium-high heat. Put the butter in the pan. When it has started melting, add the curry powder and chopped rosemary to the pan. Stir. When the butter mixture is foaming and the curry powder and rosemary aromas become much stronger, remove the pan from the heat. Add the fried almonds to the butter mixture and toss to coat. Add the Maldon salt. Put the almonds in a heatproof bowl and allow to cool for 5 minutes. Serve while warm topped with a sprig of rosemary, and a gritty who-done-it.

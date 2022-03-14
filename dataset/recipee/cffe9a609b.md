@@ -1,0 +1,27 @@
+## Okara Cookies with Caramelized Nuts
+
+[cffe9a609b](https://cookpad.com/us/recipes/152622-okara-cookies-with-caramelized-nuts)
+
+### Ingredients
+
+ - 50 g of okara
+
+ - 50 g of wheat flour, white, cake, enriched
+
+ - 1/3 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 20 g of sugars, granulated
+
+ - 1 pinch of salt, table
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 40 g of nuts, walnuts, english
+
+ - 15 g of sugars, granulated
+
+ - 1 teaspoon of water, bottled, generic
+
+### Instructions
+
+Use your favorite nuts. Roast briefly in the oven or a pan. Finely chop the nuts into 5mm - 1cm pieces. Put the sugar and water markedin a pan and heat. When the mixture is bubbling, and it becomes brown and thickened like the picture above, add the nuts. Remove from the heat and stir. Put the nuts onto a wax paper sheet and let dry and cool. Put the ingredients marked and the fresh okara in a bowl, and mix well. Add 2-3 tablespoons of oil. Check the dough and add more oil or soy milk if necessary. Refer to the Helpful Hints. Add nuts into the bowl, and divide the dough into 20 - 24 balls. Squash to flatten. Bake in a preheated oven at 340F/170C for 22 - 30 minutes.

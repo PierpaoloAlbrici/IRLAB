@@ -1,0 +1,35 @@
+## White Chocolate Cherry Scones
+
+[e84a4dffee](http://www.food.com/recipe/white-chocolate-cherry-scones-135575)
+
+### Ingredients
+
+ - 1 1/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 34 cup of sugars, granulated
+
+ - 34 teaspoon of salt, table
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 2 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 2 1/2 cup of oats
+
+ - 1 cup of cherries, sweet, raw
+
+ - 10 ounce of butter, without salt
+
+ - 34 cup of milk, buttermilk, fluid, cultured, lowfat
+
+ - 1 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 tablespoon of cream, fluid, heavy whipping
+
+ - 1 tablespoon of sugars, granulated
+
+### Instructions
+
+Line baking sheet with parchment paper. Combine all dry ingredients, except sanding sugar, with the cherries (or other dried fruit) in the bowl of an electric mixer fitted with a paddle attachment. Add butter, and mix on medium-low speed until the mixture resembles coarse meal. Add white chocolate chips. Add buttermilk and mix until just combined. Turn out the mixtures onto a clean work surface. With hands, pat mixture into two 16" x 4" rectangles that are 1/2 inches high. Score rectangle into 16 triangles. Cover with plastic wrap and transfer to the freezer for at least 2 hours. Heat oven to 350. Remove dough from the freezer and cut into triangles with a sharp knife. Place scones two inches apart on the prepared baking sheet. Brush scones with heavy cream and sprinkle with sanding sugar. Bake until lightly golden, about 15 minutes. Freezing the dough at least two hours keeps scones from spreading too much. Frozen dough will keep for up to 3 weeks.

@@ -1,0 +1,19 @@
+## Whole-Wheat Pie Dough
+
+[733fddb0ec](http://cooking.nytimes.com/recipes/1016266)
+
+### Ingredients
+
+ - 222 g of butter, without salt
+
+ - 175 g of wheat flour, white, all-purpose, unenriched
+
+ - 175 g of wheat flour, white, all-purpose, unenriched
+
+ - 7 g of salt, table
+
+ - 92 g of water, bottled, generic
+
+### Instructions
+
+Place butter in the bowl of a standing mixer. Sift together flours and salt and add to mixer. Mix at low speed just until the mixture is well combined. Add water and beat at low speed just until mixture comes together. Do not overmix or you will activate the gluten in the flour too much and your pastry will be tough. Using a pastry scraper or a rubber spatula, scrape dough onto a large sheet of plastic wrap. Weigh it and divide into 2 equal pieces. Place each piece onto a large sheet of plastic, fold plastic over and flatten into 1/2-inch thick squares. Double wrap and refrigerate for at least 2 hours and preferably overnight. Very lightly butter two 9-inch tart pans. (If you can see butter youve used too much.) Roll out dough and line tart pans. Using a fork, pierce rows of holes in the bottom, about an inch apart. This will allow steam to escape and aid in even baking. Refrigerate uncovered for several hours or preferably overnight. (If using only 1 pastry shell, double wrap the other in plastic, then in foil, and freeze.) To prebake, heat oven to 325 degrees. Unwrap tart shell and place on a sheet pan or baking sheet. Line the dough with a sheet of parchment. Fill all the way with pie weights (you can also use beans or rice). Place on the middle rack of the oven for 15 minutes. Remove pie weights and parchment and return pastry to oven. Bake for 15 to 20 minutes more, or until light brown and evenly colored. There should be no evidence of moisture in dough. Remove from oven and allow to cool.

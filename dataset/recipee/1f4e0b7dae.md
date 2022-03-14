@@ -1,0 +1,25 @@
+## Hot and Sweet Nut Brittle
+
+[1f4e0b7dae](http://www.food.com/recipe/hot-and-sweet-nut-brittle-196323)
+
+### Ingredients
+
+ - 1 pound of nuts, almonds
+
+ - 14 cup of vinegar, cider
+
+ - 2 cup of sugars, granulated
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 teaspoon of salt, table
+
+ - 2 teaspoon of spices, cumin seed
+
+ - 1 teaspoon of spices, coriander seed
+
+ - 12-34 teaspoon of spices, pepper, red or cayenne
+
+### Instructions
+
+Preheat oven to 375F Place almonds in 15 1/2 x 10 1/2-inch jelly-roll pan. Bake 10 to 15 minutes until golden brown, shaking pan occasionally. Cool almonds in pan on wire rack. While almonds cool, in heavy 3-quart saucepan, heat vinegar and 2 cups sugar to boiling over medium heat. Continue cooking over medium heat until mixture turns dark amber in color, 15 to 20 minutes, stirring occasionally. (If using a thermometer, temperature should read about 360F.) Meanwhile, in small bowl, mix salt, cumin, coriander, ground red pepper, and remaining 1 tablespoon sugar. Lightly grease large cookie sheet. Remove saucepan from heat. Stir spice mixture into hot sugar syrup. Add almonds, and stir until evenly coated. Immediately pour mixture onto cookie sheet. With 2 forks, spread almond mixture to form a single layer. Cool brittle completely on cookie sheet on wire rack. With hands, break brittle into small pieces. Store in tightly covered jar or tin for up to a month.

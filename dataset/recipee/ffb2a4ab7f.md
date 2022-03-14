@@ -1,0 +1,21 @@
+## Snappy Green Beans
+
+[ffb2a4ab7f](http://www.food.com/recipe/snappy-green-beans-379155)
+
+### Ingredients
+
+ - 2 pound of beans, snap, green, raw
+
+ - 2 teaspoon of butter, without salt
+
+ - 2 tablespoon of parsley, fresh
+
+ - 2 teaspoon of lemon juice, raw
+
+ - 12 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+### Instructions
+
+Place beans in a large saucepan; cover with water. Bring to a boil. Reduce heat; simmer, uncovered, for 10-15 minutes or until crisp-tender. Drain. In a large nonstick skillet, melt butter. Add beans; cook and stir until heated through. Remove from the heat. Add the parsley, lemon juice, salt and pepper; toss to coat. Serve immediately.

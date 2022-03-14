@@ -1,0 +1,17 @@
+## Easy Cheesy Biscuits
+
+[bca4ed0a9c](http://www.food.com/recipe/easy-cheesy-biscuits-4991)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 14 cup of butter, without salt
+
+ - 1 1/2 cup of cheese, cottage, creamed, large or small curd
+
+### Instructions
+
+Preheat oven to 450F(230C). Sift together flour and baking powder into a large bowl. Cut butter into flour mixture with pastry blender or 2 knives until particles are the size of small peas. Stir in cottage cheese all at once. Drop by generous tablespoons onto a lightly greased cookie sheet. Bake for 15 minutes or until golden.

@@ -1,0 +1,19 @@
+## Soft Oatmeal Raisin Cookies Recipe
+
+[e3a5dad16b](http://cookeatshare.com/recipes/soft-oatmeal-raisin-cookies-6608)
+
+### Ingredients
+
+ - 3/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/4 teaspoon of salt, table
+
+ - 1/4 teaspoon of leavening agents, baking soda
+
+ - 1/2 teaspoon of spices, cinnamon, ground
+
+ - 1/4 teaspoon of spices, cloves, ground
+
+### Instructions
+
+Cream 1/3 c. shortening. Add in 1/2 c. sugar and cream well. Beat in 1 egg. Stir in 3/4 c. rolled oats. Combine 3 Tbsp. lowfat milk and 1 Tbsp. white vinegar in small c.. Add in 1/2 of the flour mix to the creamed mix, beat well. Add in lowfat milk mix to creamed mix. Beat well. Add in remainder of flour, cream well. Drop onto ungreased cookie sheets by rounded teaspoonfuls. Bake at 400 degrees for 10 to 12 min.

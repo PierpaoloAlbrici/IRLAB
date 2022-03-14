@@ -1,0 +1,23 @@
+## Tomato Soup - Quick and Easy
+
+[b5ed5fccc8](http://www.food.com/recipe/tomato-soup-quick-and-easy-352868)
+
+### Ingredients
+
+ - 2 quart of tomatoes, red, ripe, raw, year round average
+
+ - 2 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 3 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 3 tablespoon of sugars, granulated
+
+ - 2 teaspoon of salt, table
+
+ - 1 teaspoon of spices, pepper, black
+
+ - 2 teaspoon of spices, onion powder
+
+### Instructions
+
+Pour Juice into crock pot or pot. Mix the flour into the milk until smooth and dissolved (I usually put them into a small canning jar, put the lid on and shake it like a crazy woman until it's smooth!) :). Pour the flour/milk mixture into juice and add the rest of the spices. Crockpot: Cook on low for about 3 hours or more. Stove top: Cook on Meduim/High until it boils. Turn it to Medium/Low and let simmer for about 20 minutes until the flavors have developed and it has gotten a little thicker. Add more spices to your taste and enjoy!

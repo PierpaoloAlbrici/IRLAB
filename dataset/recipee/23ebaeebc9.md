@@ -1,0 +1,17 @@
+## Warm French Onion Soup Dip
+
+[23ebaeebc9](http://www.food.com/recipe/warm-french-onion-soup-dip-151548)
+
+### Ingredients
+
+ - 1 pound of wheat flours, bread, unenriched
+
+ - 10 1/2 ounce of onions, raw
+
+ - 8 ounce of cheese, parmesan, hard
+
+ - 2 cup of cheese, parmesan, hard
+
+### Instructions
+
+Mix soup and cream cheese until smooth. Stir in swiss cheese. Spread in a 1 qrt baking dish. Bake at 375 for 30 minutes. Cut bread into chunks for dipping. You can also toast the bread chunks in the oven and then use for dipping.

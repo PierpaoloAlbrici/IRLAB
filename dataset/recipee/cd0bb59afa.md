@@ -1,0 +1,29 @@
+## Cheesy Herb Seasoning Mix
+
+[cd0bb59afa](http://www.food.com/recipe/cheesy-herb-seasoning-mix-326111)
+
+### Ingredients
+
+ - 13 cup of cheese, parmesan, hard
+
+ - 2 tablespoon of spices, parsley, dried
+
+ - 2 teaspoon of onions, raw
+
+ - 1 teaspoon of sugars, granulated
+
+ - 1 teaspoon of seeds, sesame seeds, whole, dried
+
+ - 12 teaspoon of spices, basil, dried
+
+ - 12 teaspoon of spices, marjoram, dried
+
+ - 12 teaspoon of spices, garlic powder
+
+ - 14 teaspoon of spices, pepper, black
+
+ - 14 teaspoon of spices, paprika
+
+### Instructions
+
+Mix all ingredients in a small bowl. Store in an airtight container.

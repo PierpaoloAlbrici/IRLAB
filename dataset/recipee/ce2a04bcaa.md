@@ -1,0 +1,23 @@
+## Macadamia Nut Caramel Squares
+
+[ce2a04bcaa](http://www.food.com/recipe/macadamia-nut-caramel-squares-390340)
+
+### Ingredients
+
+ - 4 ounce of nuts, macadamia nuts, raw
+
+ - 10 ounce of wheat flour, white, all-purpose, unenriched
+
+ - 6 ounce of sugars, brown
+
+ - 4 ounce of butter, without salt
+
+ - 4 ounce of butter, without salt
+
+ - 3 1/2 ounce of sugars, brown
+
+ - 7 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Preheat oven to 180C/350F/Gas Mark 4. Coarsely chop the macadamia nuts. To make the base, beat together the flour, sugar, and butter until the mixture resembles fine breadcrumbs. Press the mixture into the bottom of a 30x20 cm/12x8" rectangular baking tin. Sprinkle the macadamia nuts over top. To make the topping, put the butter and sugar in a saucepan, and stirring constantly, slowly bring to a boil. Boil for 1 minute, stirring constantly, then carefully pour the mixture over the macadamia nuts. Bake for about 20 minutes, until the caramel topping is bubbling. Remove from the oven and immediately sprinkle chocolate chips evenly over top. Leave for 2-3 minutes, until the chocolate begins to melt, then using a fork or knife, swirl the chocolate over the top. Leave to cool in the tin, then cut into squares.

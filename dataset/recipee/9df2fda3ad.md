@@ -1,0 +1,23 @@
+## Laura's Granola
+
+[9df2fda3ad](http://www.food.com/recipe/lauras-granola-394330)
+
+### Ingredients
+
+ - 7 cup of oats
+
+ - 12 cup of oil, olive, salad or cooking
+
+ - 14 cup of honey
+
+ - 23 cup of nuts, walnuts, english
+
+ - 1 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 12 cup of seeds, sunflower seed kernels, dried
+
+ - 1 1/2 cup of raisins, seeded
+
+### Instructions
+
+1. Preheat oven to 365. 2. Spread oats on two baking sheets. Drizzle with oil and honey and mix well with cookie spatula. 3. Bake cookie sheets side-by-side for about 20 minutes (more depending on your oven and how toasty you like your granola), stirring every 5-6 minutes. Be careful to get the granola at the edges of the pan into the middle so it won't burn. 4. Before the last 5-6 minutes, add walnuts, coconut, and sunflower seeds if yours aren't preroasted. 5. Remove from oven, stir, spread back out on pan and let cool. Add raisins (and sunflower seeds if preroasted). Store in airtight container.

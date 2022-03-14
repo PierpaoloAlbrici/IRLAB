@@ -1,0 +1,19 @@
+## Balouza
+
+[f3ce7ebbd5](http://www.epicurious.com/recipes/food/views/balouza-373585)
+
+### Ingredients
+
+ - 1/2 cup of cornstarch
+
+ - 4 cup of water, bottled, generic
+
+ - 1/2 cup of sugars, granulated
+
+ - 3 tablespoon of water, bottled, generic
+
+ - 1/2 cup of nuts, almonds
+
+### Instructions
+
+Mix the cornstarch to a smooth paste with a little of the water in a large pan. Add the rest of the water and the sugar, and stir vigorously with a wooden spoon until dissolved. Bring to the boil slowly, stirring constantly, then put on the lowest heat and simmer gently, still stirring continually, until the mixture thickens. To test if it is ready, dip a spoon in the hot cream and see if it clings and coats the spoon. Another test is to drop 1/4 teaspoon of it onto a cold plateif it remains a solid little ball and does not flatten out, it has thickened enough. Stir in orange-blossom or rose water and continue to cook for 12 minutes more. Add the chopped nuts, stir well, and pour into a glass bowl. Serve chilled. It will set firmly. You can make this not too sweet (with less sugar) and add a spoonful of rose-petal or quince jam to each serving. For balouza muhallabeya, a creamier, less firm version, use milk instead of water. Leave out the nuts and use them as garnish instead. Flavor if you like with 1/2 teaspoon mastic, pounded or ground to a powder with a pinch of sugar. Chill and decorate with chopped blanched almonds or pistachios, or with both. This is the pudding you will usually find in Lebanese restaurants today.

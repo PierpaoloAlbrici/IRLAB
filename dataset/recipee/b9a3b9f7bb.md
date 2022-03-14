@@ -1,0 +1,27 @@
+## Sparkling Cranberry Gems (King Arthur Flour Website)
+
+[b9a3b9f7bb](http://www.food.com/recipe/sparkling-cranberry-gems-king-arthur-flour-website-336137)
+
+### Ingredients
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 cup of cranberries, dried, sweetened
+
+ - 2 tablespoon of sugars, granulated
+
+ - 1 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 14 teaspoon of salt, table
+
+ - 1 teaspoon of vanilla extract
+
+ - 6 tablespoon of butter, without salt
+
+ - 3 tablespoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 13 cup of sugars, granulated
+
+### Instructions
+
+Place the flour and dried cranberries in the bowl of a food processor. Process until the cranberries are coarsely shredded. Imagine a single dried cranberry cut into about 4 pieces: thats your goal. Preheat the oven to 350F Lightly grease (or line with parchment) two baking sheets. Whisk together the flour/cranberry mixture, sugar, baking powder, and salt. Add the vanilla and butter, mixing until the butter is thoroughly distributed, but some pea-sized chunks still remain. Dribble in the milk while mixing; the dough will become cohesive. Place the coarse sugar and tart and sour flavor in a jar, and shake to combine thoroughly. Pour the sugar into a roomy plastic bag; about 1/2-gallon size should do. Using a teaspoon cookie scoop (or a spoon), scoop the dough by 1 3/4-teaspoonfuls (about 1 1/4" balls) into the bag, 6 or 8 at a time. Close the top of the bag, and gently shake to coat the balls with sugar. Place them on the prepared baking sheet, and use the bottom of a glass to flatten them to about 1/4" thick (about 1 1/2" in diameter). Repeat with the remaining dough. Bake the cookies for 16 to 17 minutes, until theyre set and barely, BARELY beginning to brown around the very edge; the tops shouldnt be brown at all. Remove them from the oven, and cool right on the pan.

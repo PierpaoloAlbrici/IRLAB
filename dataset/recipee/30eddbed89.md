@@ -1,0 +1,19 @@
+## Crab Dip
+
+[30eddbed89](http://www.food.com/recipe/crab-dip-241978)
+
+### Ingredients
+
+ - 8 ounce of cream, sour, cultured
+
+ - 12 cup of salad dressing, mayonnaise, regular
+
+ - 12 cup of cheese, parmesan, hard
+
+ - 12 cup of cheese, parmesan, hard
+
+ - 6 ounce of crustaceans, crab, alaska king, imitation, made from surimi
+
+### Instructions
+
+Mix all ingredients together. Recommended seasonings are Tabasco (1/8 oz. ), Paprika, ground red pepper, and a dash of Old Bay seasoning. Bake at 350F for 30 minutes or until hot and bubbly.

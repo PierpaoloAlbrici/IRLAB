@@ -1,0 +1,25 @@
+## Chocolate Peanut Butter Truffles
+
+[4ebe87ee2c](http://www.food.com/recipe/chocolate-peanut-butter-truffles-284453)
+
+### Ingredients
+
+ - 1 cup of peanut butter, smooth style, without salt
+
+ - 1 cup of nuts, pecans
+
+ - 1 cup of sugars, powdered
+
+ - 1 cup of dates, deglet noor
+
+ - 1 tablespoon of butter, without salt
+
+ - 2 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 12 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 12 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+In large bowl, combine peanut butter, pecans, powdered sugar, dates, and butter and mix well; form into 1" balls. Melt semisweet chips and 1/2 cup milk chocolate chips together in a glass measuring cup in microwave on medium power about 2 minutes, stirring once, until melted and smooth. Stir in remaining 1/2 cup milk chocolate chips and stir constantly until smooth (this tempers the chocolate, setting up crystals so it will harden). Dip each ball into melted chocolate mixture and set on parchment paper. Let stand until chocolate is firm, then store tightly covered at room temperature.

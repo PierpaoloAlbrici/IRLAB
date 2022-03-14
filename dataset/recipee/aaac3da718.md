@@ -1,0 +1,27 @@
+## Homemade Taco Seasoning
+
+[aaac3da718](http://tastykitchen.com/recipes/homemade-ingredients/homemade-taco-seasoning-3/)
+
+### Ingredients
+
+ - 1/4 cup of spices, chili powder
+
+ - 1/4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 3 tablespoon of onions, raw
+
+ - 1 tablespoon of spices, garlic powder
+
+ - 3 teaspoon of salt, table
+
+ - 2 teaspoon of spices, oregano, dried
+
+ - 2 teaspoon of spices, cumin seed
+
+ - 1 teaspoon of spices, pepper, red or cayenne
+
+ - 1 teaspoon of spices, coriander seed
+
+### Instructions
+
+With a wire whisk, combine all ingredients in a medium sized mixing bowl. Stir until well-combined, then pour into a resealable plastic bag. Label with the date and contents. When youre ready to make tacos: Brown 1 pound of beef, turkey, or protein of choice. Add 1/4 cup of the taco seasoning mix and about 1/2 cup of water. Bring mixture to a boil and cook and stir for 2 minutes. Taco time!

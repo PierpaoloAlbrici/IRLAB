@@ -1,0 +1,25 @@
+## Apple Pie (Filling) in a Jar
+
+[bcba266ea8](http://www.food.com/recipe/apple-pie-filling-in-a-jar-270380)
+
+### Ingredients
+
+ - 4-5 cup of sugars, granulated
+
+ - 1 cup of cornstarch
+
+ - 4 teaspoon of spices, cinnamon, ground
+
+ - 12 teaspoon of spices, nutmeg, ground
+
+ - 1 teaspoon of salt, table
+
+ - 10 cup of water, bottled, generic
+
+ - 5 tablespoon of lemon juice, raw
+
+ - 7 quart of apples, raw, with skin
+
+### Instructions
+
+In a large saucepan, combine sugar (IF THE APPLES ARE QUITE SWEET, USE ONLY THE 4 CUPS OF SUGAR), cornstarch, cinnamon, nutmeg and salt with *5 cups* of water. Mix well over low heat until all is dissolved. Slowly add the remaining water. Cook stirring often until mixture is thick and bubbly. Add lemon juice. Peel and cut fresh apples into small wedges and fill quart jars. Pour prepared sugar mixture over the apples and seal. Boil 20 minutes in a hot water bath.

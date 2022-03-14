@@ -1,0 +1,19 @@
+## Roquefort Buttermilk Dressing
+
+[e12a3f0cbb](http://www.epicurious.com/recipes/food/views/roquefort-buttermilk-dressing-14000)
+
+### Ingredients
+
+ - 1/3 cup of milk, buttermilk, fluid, cultured, lowfat
+
+ - 1/2 teaspoon of sauce, worcestershire
+
+ - 1 teaspoon of vinegar, red wine
+
+ - 1 1/2 teaspoon of mustard, prepared, yellow
+
+ - 1 ounce of cheese, blue
+
+### Instructions
+
+In a blender blend dressing ingredients until smooth and season with salt and pepper. Dressing may be made 3 days ahead and chilled, covered.

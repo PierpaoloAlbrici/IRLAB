@@ -1,0 +1,21 @@
+## Spelt Bread (Bread Machine)
+
+[9c32daaaf6](http://www.food.com/recipe/spelt-bread-bread-machine-280382)
+
+### Ingredients
+
+ - 1 1/4 cup of soymilk, original and vanilla, unfortified
+
+ - 2 tablespoon of sugars, granulated
+
+ - 2 tablespoon of oil, canola
+
+ - 1 teaspoon of salt, table
+
+ - 4 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 1/2 teaspoon of leavening agents, yeast, baker's, active dry
+
+### Instructions
+
+Place ingredients in pan of bread machine in order recommended by manufacturer. I used the cycle for white bread,Quick or Rapid,& light crust. My bread Machine is a Breadman, so I used Rapid cycle (time 2 hours). Note: I did have to add a little more milk when it was mixing.

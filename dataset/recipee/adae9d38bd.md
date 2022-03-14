@@ -1,0 +1,27 @@
+## Creole Spice Mix
+
+[adae9d38bd](http://www.food.com/recipe/creole-spice-mix-23984)
+
+### Ingredients
+
+ - 2 teaspoon of spices, onion powder
+
+ - 2 teaspoon of spices, garlic powder
+
+ - 2 teaspoon of spices, oregano, dried
+
+ - 2 teaspoon of spices, basil, dried
+
+ - 1 teaspoon of spices, thyme, dried
+
+ - 1 teaspoon of spices, pepper, black
+
+ - 1 teaspoon of spices, pepper, black
+
+ - 1 teaspoon of spices, pepper, red or cayenne
+
+ - 5 teaspoon of spices, paprika
+
+### Instructions
+
+Combine until well blended.

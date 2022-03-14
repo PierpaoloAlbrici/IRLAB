@@ -1,0 +1,21 @@
+## Cream Style Onions Recipe
+
+[baee00b16e](http://cookeatshare.com/recipes/cream-style-onions-60189)
+
+### Ingredients
+
+ - 3 pound of onions, raw
+
+ - 2 tablespoon of butter, without salt
+
+ - 1 teaspoon of salt, table
+
+ - 1 dash of spices, pepper, black
+
+ - 3 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 3/4 cup of milk, buttermilk, fluid, cultured, lowfat
+
+### Instructions
+
+Boil onions till tender (20-30 min). In saucepan heat butter and add in salt and pepper. Stir constantly. Add in flour and lowfat milk; simmer till creamy (15 min). Pour sauce over onions and sprinkle with minced parsley (if you like). Serve in casserole dish. Serves 6.

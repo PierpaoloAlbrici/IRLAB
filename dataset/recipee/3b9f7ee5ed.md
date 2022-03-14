@@ -1,0 +1,27 @@
+## Maple Bacon Popcorn
+
+[3b9f7ee5ed](http://www.food.com/recipe/maple-bacon-popcorn-488223)
+
+### Ingredients
+
+ - 12 pound of bacon, meatless
+
+ - 2 tablespoon of bacon, meatless
+
+ - 12 cup of snacks, popcorn, air-popped (unsalted)
+
+ - 1 teaspoon of salt, table
+
+ - 3 tablespoon of sugars, brown
+
+ - 23 cup of syrup, maple, canadian
+
+ - 3 tablespoon of butter, without salt
+
+ - 12 teaspoon of vanilla extract
+
+ - 12 teaspoon of leavening agents, baking soda
+
+### Instructions
+
+Cook bacon in a skillet until crispy, and once cooled, crumble it up. Reserve the bacon drippings. In a medium (2 quart) saucepan combine 2 tablespoons of bacon drippings and three kernels of popcorn; place on a tight-fitting lid and cook over medium heat. When you hear the three kernels pop, it is time to add the rest of the popcorn inches Gently shake the pot as the popcorn cooks and pops. When you hear less than one pop every one to two second, turn off the heat and let the pan sit for one minute. On a large baking sheet (13X18) coated with cooking spray, spread out the popcorn and sprinkle with salt. Preheat the oven to 250 degrees. In a medium pot (2 quart) combine brown sugar, maple syrup, and butter. Cook over medium heat, stirring frequently. Sugar mixture should be boiling and will start to thicken when it is ready after about 6-9 minutes. Turn off the heat, and quickly stir in the vanilla and baking soda; the mixture will turn lighter in color and will become foamy. Evenly pour the sugar mixture over the popcorn. Sprinkle with the bacon bits. Place the pan into the oven and cook for 30 minutes, stirring every 10 minutes. Let the popcorn cool and harden, break into pieces and store in an airtight container.

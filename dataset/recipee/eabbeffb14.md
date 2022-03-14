@@ -1,0 +1,25 @@
+## Raspberry White Chocolate Cream Scones
+
+[eabbeffb14](http://tastykitchen.com/recipes/breads/raspberry-white-chocolate-cream-scones/)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 13 cup of sugars, granulated
+
+ - 1 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1/2 teaspoon of salt, table
+
+ - 13 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 cup of raspberries, raw
+
+ - 1 cup of cream, fluid, heavy whipping
+
+ - 1 tablespoon of sugars, granulated
+
+### Instructions
+
+1. Preheat the oven to 425 degrees F. In a medium-sized bowl, whisk together the flour, sugar, baking powder, and salt. Stir in the white chocolate chips. Add the raspberries and the cream. Gently fold the ingredients together until just mixed. Some of the raspberries will start to break up; this is fine but try not to mash them too much. 2. Gather the dough together and form into an 8-inch circle on a flour-covered surface. Cut the circle into 8 wedges. Separate the wedges and place them on an ungreased baking sheet. 3. Brush the tops of the scones with extra cream, and sprinkle liberally with the turbinado sugar. Bake for 12-15 minutes, or until lightly browned on the top. Recipe adapted from Joy of Cooking.

@@ -1,0 +1,17 @@
+## Mango Smoothie
+
+[ceff6b5c25](http://www.food.com/recipe/mango-smoothie-451643)
+
+### Ingredients
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 cup of mango nectar, canned
+
+ - 1 cup of water, bottled, generic
+
+ - 1 tablespoon of lime juice, raw
+
+### Instructions
+
+Blend. Serve with ginger wafers or cookies.

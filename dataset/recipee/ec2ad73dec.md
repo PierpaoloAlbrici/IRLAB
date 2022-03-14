@@ -1,0 +1,23 @@
+## Curried Corn
+
+[ec2ad73dec](http://www.food.com/recipe/curried-corn-425279)
+
+### Ingredients
+
+ - 2 cup of corn, sweet, white, raw
+
+ - 2 tablespoon of butter, without salt
+
+ - 3 tablespoon of onions, raw
+
+ - 12 teaspoon of spices, curry powder
+
+ - 12 cup of cream, sour, cultured
+
+ - 12 teaspoon of salt, table
+
+ - 18 teaspoon of spices, pepper, black
+
+### Instructions
+
+Melt butter, add corn, onion, and curry. Saute. Cover and simmer slowly, about 10 min, until tender, stirring often. Add sour cream, salt, and pepper, heat until warm, and serve.

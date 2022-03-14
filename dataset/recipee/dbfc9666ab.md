@@ -1,0 +1,19 @@
+## Whole Wheat Flour Tortillas
+
+[dbfc9666ab](http://tastykitchen.com/recipes/breads/whole-wheat-flour-tortillas/)
+
+### Ingredients
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/2 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 1 teaspoon of salt, table
+
+ - 1/2 teaspoon of spices, garlic powder
+
+ - 1 cup of water, bottled, generic
+
+### Instructions
+
+In a mixer bowl with the dough hook (or in my case a food processor with a dough blade), pour in flour, oil, salt and garlic salt. Beat until crumbly. With mixer running, gradually add warm water and continue mixing until the dough is smooth. Take out the dough and divide it into 12 equal pieces; I cut each piece in half until I have 12 pieces. Roll each piece into a ball and flatten it out on a cutting board/tray. Cover them with plastic wrap for about 15 to 30 minutes at room temperature. Heat a skillet/griddle over medium-high heat. On a lightly floured board, use a rolling pin to turn each circle into a nice flat tortilla. Add a bit of oil to the pan if needed (I dont use oil on my nonstick pan), and then cook each tortilla one by one about 30 seconds on each side (it will puff up). Set aside on a plate to enjoy right away or refrigerate and freeze for later. I like making rolled chicken tacos with mine.

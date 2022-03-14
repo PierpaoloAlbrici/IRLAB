@@ -1,0 +1,25 @@
+## Caramel Popcorn
+
+[e9da12be0d](http://www.foodnetwork.com/recipes/caramel-popcorn-recipe.html)
+
+### Ingredients
+
+ - 1/2 cup of snacks, popcorn, air-popped (unsalted)
+
+ - 2 cup of oil, corn, peanut, and olive
+
+ - 1 1/4 cup of sugars, brown
+
+ - 1/4 cup of butter, without salt
+
+ - 1/4 cup of syrups, corn, light
+
+ - 2 teaspoon of vanilla extract
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/4 teaspoon of leavening agents, baking soda
+
+### Instructions
+
+Preheat oven to 250 degrees F. Generously butter heavy large baking pan. Mix warm popcorn and peanuts in prepared pan. Place in oven while preparing syrup. Combine brown sugar, butter and corn syrup in heavy medium saucepan. Whisk over medium-low heat until sugar dissolves and butter melts. Attach clip-on candy thermometer to side of pan. Increase heat to high and boil without stirring until thermometer registers 255 degrees F, occasionally brushing down sides of pan with wet pastry brush, about 4 minutes. Remove from heat. Stir in vanilla extract, salt and baking soda (mixture will bubble). Gradually pour syrup over popcorn and nuts completely. Bake until caramel feels dry, stirring frequently, about 1 hour 30 minutes. Remove from oven. Using metal spatula, scrape mixture from bottom of pan to loosen. Cool completely in pan. (Can be prepared 1 week ahead. Store in airtight container at room temperature.)

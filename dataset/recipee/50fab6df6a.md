@@ -1,0 +1,17 @@
+## Anne's Chocolate Fudge Frosting
+
+[50fab6df6a](http://www.food.com/recipe/annes-chocolate-fudge-frosting-61886)
+
+### Ingredients
+
+ - 2 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 14 cup of shortening, vegetable, household, composite
+
+ - 3 cup of sugars, powdered
+
+ - 13 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Put 2 inches of water in the bottom of a double boiler. Add the chocolate chips and vegetable shortening to the top of double boiler. Allow the chocolate and shortening to melt. Stir in the sugar a little at a time. Add the milk. Remove the top pot from the heat. Beat frosting with the electric mixer until it is thick and creamy--about 5 minutes. With a metal spatula or knife, spread about 1/3 of the frosting between the two layers and use the rest to cover the top and sided of the cake.

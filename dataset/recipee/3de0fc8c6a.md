@@ -1,0 +1,27 @@
+## Whale Watcher
+
+[3de0fc8c6a](http://www.epicurious.com/recipes/food/views/whale-watcher-200540)
+
+### Ingredients
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 tablespoon of water, bottled, generic
+
+ - 2 cup of water, bottled, generic
+
+ - 1/2 cup of grapefruit juice, white, raw
+
+ - 2 tablespoon of lemon juice, raw
+
+ - 2 tablespoon of alcoholic beverage, distilled, rum, 80 proof
+
+ - 2 tablespoon of bananas, raw
+
+ - 2 tablespoon of cream, whipped, cream topping, pressurized
+
+ - 1 tablespoon of syrups, grenadine
+
+### Instructions
+
+Combine sugar and water in small bowl and stir until sugar dissolves. Cool. Transfer to blender. Add all remaining ingredients and blend until smooth. Divide among 4 glasses.

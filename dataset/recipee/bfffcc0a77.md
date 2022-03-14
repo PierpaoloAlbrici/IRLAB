@@ -1,0 +1,17 @@
+## plum sorbet
+
+[bfffcc0a77](http://www.food.com/recipe/plum-sorbet-33865)
+
+### Ingredients
+
+ - 34 pound of plums, raw
+
+ - 1 cup of orange juice, raw
+
+ - 3 tablespoon of sugars, granulated
+
+ - 1 tablespoon of orange juice, raw
+
+### Instructions
+
+Combine plums, orange juice, sugar, and orange peel in a blender. Use the puree button on your blender until it is smooth. Pour the mixture into a freezer safe dish, and put in your freezer for about 4 hours. About half an hour before you are ready to eat it, puree it one more time in your blender. You should keep it in the freezer until you're ready to eat.

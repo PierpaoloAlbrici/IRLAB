@@ -1,0 +1,21 @@
+## Benne Seed Crisps Recipe
+
+[cc26ceba6a](http://cookeatshare.com/recipes/benne-seed-crisps-83505)
+
+### Ingredients
+
+ - 1 cup of cornmeal, degermed, unenriched, yellow
+
+ - 2 tablespoon of butter, without salt
+
+ - 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/3 cup of seeds, sesame seeds, whole, dried
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/4 teaspoon of leavening agents, baking soda
+
+### Instructions
+
+Preheat the oven to 350 degrees. Sift the cornmeal together with the flour, salt and baking soda into a bowl. Fold in the butter and cream. Knead the dough till it holds together (6 to 8 times) on a floured board. Roll the dough by the teaspoonful on the floured board. Sprinkle with sesame seeds. Roll into very thin 4" diameter rounds, leaving the edges ragged. Bake on an ungreased cookie sheet till golden brown (about 15 min). Sprinkle with salt while still hot. Store in a tightly covered container. Go well with cocktails and seafood soups NOTES : Yields 24 Crisp

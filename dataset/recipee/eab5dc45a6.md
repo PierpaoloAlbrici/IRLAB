@@ -1,0 +1,25 @@
+## Chewy Anzac Biscuits
+
+[eab5dc45a6](http://tastykitchen.com/recipes/breads/chewy-anzac-biscuits/)
+
+### Ingredients
+
+ - 50 g of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 90 g of oats
+
+ - 150 g of wheat flour, white, all-purpose, unenriched
+
+ - 150 g of sugars, granulated
+
+ - 125 g of butter, without salt
+
+ - 2 tablespoon of syrups, corn, light
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 2 tablespoon of water, bottled, generic
+
+### Instructions
+
+Preheat oven to 160 C. Line 2 baking trays with grease-proof (parchment) paper. Pan roast the desiccated coconut in a skillet over medium heat until golden in colour. Set aside to cool. In a large bowl mix all the dry ingredients together (except bicarbonate soda). Set aside. In a medium size saucepan over medium-low heat, and melt butter with corn syrup. Take pan off from heat and add bicarbonate soda (use caution because this will froth). Add the boiling water. Pour the butter mixture into the oat mixture. Mix until well combined. Roll into walnut sized balls and flatten. Place them 5cm apart on the baking tray. Bake for 12-15 minutes. If baking 2 trays at a time its best to rotate trays between shelves at the halfway point. Bake until the cookies are golden brown. Remove trays from oven. Leave the cookies to cool on the trays for few minutes before transferring to the cooling rack.

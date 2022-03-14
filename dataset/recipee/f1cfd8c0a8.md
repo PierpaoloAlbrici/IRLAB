@@ -1,0 +1,25 @@
+## Vegan Dutch Bread
+
+[f1cfd8c0a8](http://www.food.com/recipe/vegan-dutch-bread-289460)
+
+### Ingredients
+
+ - 2 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 2/3 cup of water, bottled, generic
+
+ - 1 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 teaspoon of leavening agents, baking soda
+
+ - 13 teaspoon of salt, table
+
+ - 13 cup of molasses
+
+ - 13 cup of syrup, maple, canadian
+
+### Instructions
+
+Preheat oven to 300F. Line 2 loaf pans with parchment paper. Stir together all of the ingredients. Divide batter between pans. Cover tightly with tin foil. Bake 1 1/2 hours, if it is uncooked still, bake an additional five minutes uncovered.

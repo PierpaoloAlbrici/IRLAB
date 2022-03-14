@@ -1,0 +1,37 @@
+## Deep-Dish Apple Pie
+
+[da3bf7b6e0](http://www.foodnetwork.com/recipes/food-network-kitchens/deep-dish-apple-pie.html)
+
+### Ingredients
+
+ - 2 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 12 tablespoon of butter, without salt
+
+ - 1/3 cup of shortening, vegetable, household, composite
+
+ - 1 tablespoon of sugars, granulated
+
+ - 1 teaspoon of salt, table
+
+ - 3 tablespoon of alcoholic beverage, distilled, vodka, 80 proof
+
+ - 4 pound of apples, raw, with skin
+
+ - 2/3 cup of sugars, granulated
+
+ - 2 tablespoon of lemon juice, raw
+
+ - 6 tablespoon of butter, without salt
+
+ - 3 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 2 tablespoon of cream, fluid, heavy whipping
+
+ - 1 teaspoon of spices, cinnamon, ground
+
+ - 1/4 teaspoon of salt, table
+
+### Instructions
+
+Make the crust: Pulse the flour, 4 tablespoons butter, the shortening, sugar and salt in a food processor until it looks like fine meal. Add the remaining 8 tablespoons butter and pulse until it is in pea-size pieces. Drizzle in the vodka and 3 tablespoons cold water and pulse until the dough just comes together. Divide the dough between 2 sheets of plastic wrap; use the plastic to help form each half into a disk. Wrap tightly and refrigerate until firm, at least 1 hour or overnight. (The dough can be frozen for up to 2 months; thaw at room temperature.) Make the filling: Peel the apples and slice 1/2 inch thick. Transfer to a bowl and toss with the sugar and lemon juice. Melt 4 tablespoons butter in a large skillet over medium-high heat. Add the apples and cook, stirring occasionally, until softened, 15 to 18 minutes. Add the flour, heavy cream, cinnamon and salt and stir until the juices thicken, about 2 minutes. Remove from the heat and let cool completely. (The filling can be made up to 2 days ahead; cover and refrigerate.) Roll out 1 disk of dough into a 13-inch round on a floured surface. Ease into a 9 1/2-inch deep-dish pie plate. Add the filling, mounding it in the center; dot with the remaining 2 tablespoons butter. Roll out the remaining disk of dough into a 12-inch round on a floured surface. Lay the dough over the filling and press the edges together. Fold the overhanging dough under itself and crimp the edge with your fingers. Brush with heavy cream and sprinkle with sugar. Cut a few slits in the top crust to let steam escape. Chill at least 1 hour. Set a baking sheet on a rack in the lower third of the oven; preheat to 425 degrees F. Set the pie on the hot baking sheet and reduce the oven temperature to 375 degrees F; bake until golden, 1 hour to 1 hour 10 minutes, rotating the pie as needed for even browning. (Cover the edge with foil if it is browning too quickly.) Transfer to a rack and let cool until set, about 3 hours. Photograph by Johnny Miller

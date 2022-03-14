@@ -1,0 +1,17 @@
+## Buttered Squash
+
+[fce5f6c95d](http://www.food.com/recipe/buttered-squash-501010)
+
+### Ingredients
+
+ - 2 ounce of seeds, pumpkin and squash seeds, whole, roasted, without salt
+
+ - 1 teaspoon of sugars, granulated
+
+ - 1 teaspoon of butter, without salt
+
+ - 1 dash of salt, table
+
+### Instructions
+
+Peel squash and cut into bite sized pieces. Place pieces with sugar and add water to cover. Cook until nearly fork tender, add butter and continue cooking over medium heat. When the squash becomes tender and the moisture has almost gone, remove from heat.

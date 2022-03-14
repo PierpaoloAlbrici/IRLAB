@@ -1,0 +1,21 @@
+## Cream of ???? Soup, Dry Mix - Substitute
+
+[d3c9eca70d](http://www.food.com/recipe/cream-of-soup-dry-mix-substitute-146403)
+
+### Ingredients
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 34 cup of cornstarch
+
+ - 2 tablespoon of onions, raw
+
+ - 1 teaspoon of spices, basil, dried
+
+ - 1 teaspoon of spices, thyme, dried
+
+ - 12 teaspoon of spices, pepper, black
+
+### Instructions
+
+Mix all ingredients in a jar with tight fitting lid. Shake well. Store on shelf until ready to use. To make cream of beef:. Add 2/3 cup mix to 1 cup beef broth. To make cream of chicken:. Add 2/3 cup mix to 1 cup chicken broth. To make cream of vegetable:. Add 2/3 cup mix to 1 cup vegetable broth.

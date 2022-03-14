@@ -1,0 +1,25 @@
+## Pecan Jam
+
+[f5cef2d1aa](http://allrecipes.com/recipe/pecan-jam/)
+
+### Ingredients
+
+ - 1 cup of nuts, pecans
+
+ - 1 cup of sugars, granulated
+
+ - 1 tablespoon of sugars, brown
+
+ - 1 pinch of salt, table
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 1 tablespoon of spices, cinnamon, ground
+
+ - 1/4 cup of butter, without salt
+
+ - 1 tablespoon of vinegar, cider
+
+### Instructions
+
+In a large saucepan, combine the pecans, white sugar, brown sugar, salt, ginger, cinnamon, butter, and cider vinegar. Cook over medium heat, until the sugar has dissolved and the mixture is well blended. Do not allow the mixture to boil. Transfer to sterile jars, and refrigerate.

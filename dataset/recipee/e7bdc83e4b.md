@@ -1,0 +1,23 @@
+## Baby Back Barbecue Ribs
+
+[e7bdc83e4b](http://www.food.com/recipe/baby-back-barbecue-ribs-170950)
+
+### Ingredients
+
+ - 3 pound of pork, fresh, loin, country-style ribs, separable lean only, raw
+
+ - 1 tablespoon of sugars, brown
+
+ - 1 tablespoon of spices, paprika
+
+ - 2 teaspoon of spices, garlic powder
+
+ - 1 1/2 teaspoon of spices, pepper, black
+
+ - 12 cup of water, bottled, generic
+
+ - 1 1/2 cup of sauce, barbecue
+
+### Instructions
+
+PREHEAT grill to medium OR oven to 450F. CENTER half of ribs in single layer on each sheet of Reynolds Wrap Heavy Duty Aluminum Foil. Combine brown sugar and seasonings; rub over ribs, turning to coat evenly. BRING up foil sides. Double fold top and one end to seal packet. Through open end, add 1/4 cup water. Double fold remaining end, leaving room for heat circulation inside. Repeat to make two packets. TO GRILL: Place rib packets in covered grill and grill 45 to 60 minutes. Remove foil; place ribs on grill BRUSH ribs with barbecue sauce. CONTINUE GRILLING 10 to 15 minutes, brushing with sauce and turning every 5 minutes. TO BAKE: Place rib packets on a cookie sheet and bake in oven 45 to 60 minutes. Remove foil; place ribs on broiler pan. BRUSH ribs with barbecue sauce. BROIL 4 to 5 inches from broiler, 10 to 15 minutes, brushing with sauce and turning every 5 minutes.

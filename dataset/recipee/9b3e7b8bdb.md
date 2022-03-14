@@ -1,0 +1,19 @@
+## Baking-Powder Biscuits
+
+[9b3e7b8bdb](http://www.food.com/recipe/baking-powder-biscuits-268845)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of salt, table
+
+ - 4 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 tablespoon of butter, without salt
+
+ - 34 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Into 2 cups of sifted pastry flour, sift and mix one level teaspoon of salt and four level teaspoons baking powder. Chop in one level tablespoon chilled shortening or butter, wet to a stiff dough with about three-fourths cup milk or half water and half milk. Toss out on a floured board, pat it down and roll one-half inch thick. Cut into small rounds and bake in a hot oven (450 F).

@@ -1,0 +1,23 @@
+## Puffed Wheat Cake
+
+[bedfba9a93](http://tastykitchen.com/recipes/desserts/puffed-wheat-cake/)
+
+### Ingredients
+
+ - 12 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 23 cup of butter, without salt
+
+ - 23 cup of syrups, corn, light
+
+ - 1 cup of sugars, brown
+
+ - 6 tablespoon of cocoa, dry powder, unsweetened
+
+ - 1/2 teaspoon of salt, table
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Spray a 9x13 inch baking pan with non-stick spray. Measure out puffed wheat in a heatproof bowl. Set aside. Combine and melt butter, corn syrup, brown sugar, cocoa and salt in a small saucepan. Bring to a boil over medium-low heat. Stir with a wooden spoon for 1 to 2 minutes before removing from heat. Add vanilla and stir briefly to combine. Pour the hot mixture over the puffed wheat and quickly stir to coat evenly. Itll get hard to stir but make sure to get everything coated well. Pour the puffed wheat mixture into the baking pan and use a greased spoon or hands to press the mixture hard into the pan. Let cool, and slice into however large a square youd like. Enjoy! ! This recipe can also be halved, and put into a 9-inch square pan.

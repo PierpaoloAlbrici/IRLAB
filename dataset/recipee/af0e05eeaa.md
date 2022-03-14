@@ -1,0 +1,29 @@
+## Oat Date Nut Bread
+
+[af0e05eeaa](https://recipeland.com/recipe/v/oat-date-nut-bread-37810)
+
+### Ingredients
+
+ - 3/4 teaspoon of salt, table
+
+ - 1 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 2 cup of wheat flours, bread, unenriched
+
+ - 13 cup of oats
+
+ - 13 cup of dates, deglet noor
+
+ - 1/4 cup of nuts, walnuts, english
+
+ - 1 1/2 teaspoon of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 1/2 tablespoon of sugars, granulated
+
+ - 3/4 teaspoon of spices, cinnamon, ground
+
+ - 1 1/2 tablespoon of leavening agents, yeast, baker's, active dry
+
+### Instructions
+
+Put ingredients into bread machine and press "Start".

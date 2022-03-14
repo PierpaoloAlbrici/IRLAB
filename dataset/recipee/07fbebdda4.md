@@ -1,0 +1,21 @@
+## Glace' Fruit, and Fruit Syrup
+
+[07fbebdda4](https://recipeland.com/recipe/v/glace-fruit-fruit-syrup-47791)
+
+### Ingredients
+
+ - 1 1/2 pound of pineapple, raw, all varieties
+
+ - 2 cup of water, bottled, generic
+
+ - 1/2 cup of syrups, corn, light
+
+ - 1 1/4 cup of sugars, granulated
+
+ - 2 cup of sugars, granulated
+
+ - 1 cup of sugars, granulated
+
+### Instructions
+
+Notes: To glace citrus peel, you should use 3/4 pound of peel and halve the remaining ingredients. Recipe may be doubled or tripled but should not be done in any larger batches than that - fruit can become too 'cooked'. Don't double or triple recipe for pears; they become too mushy. Yield is approximate and depends on fruit used. First Day: Prepare fruit (see below). Combine all ingredients except fruit in a large saucepan. Bring to a boil. Add prepared fruit. Heat syrup-fruit mixture to 180 F. on a candy thermometer. Remove from heat. Cool. Cover and let stand at room temperature 18 to 24 hours. Second Day: Drain syrup from fruit. Add second quantity of sugar to syrup and bring to a boil. Remove from heat. With a large metal spoon, skim any foam from the surface of the fruit and discard. Put fruit back in syrup and heat to 180 F. again. Remove from heat, cover and let stand at room temperature for 18 to 24 hours. Third Day: Repeat same process as second day, but add the third quantity of sugar. Fourth Day: Repeat same process, using fourth quantity of sugar. After final standing time, remove fruit from syrup. Place in a colander and rinse in cold water. Dry on drying trays at 120 to 140 F. until fruit is leathery and has no pockets of moisture. Drying time for glace' fruit will be one-fourth of the drying time for resh fruit because so much moisture has been replaced by FRUIT-FLAVORED PANCAKE SYRUP: Bring syrup to a boil, skim the foam, and pour into hot sterilized canning jars, filling them to 1/2 inch from the top. Seal with two part lids and process 5 minutes in boiling water bath. PREPARING FRUIT: Apples: Washi, peel, core and slice 1/4 inch thick. Apricots: Wash and cut in half; remove pits. Cherries: Wash and remove stems and pits. Citrus Peel. Use only the colored part of the peel. Cover with water and boil 15 minutes. Drain before adding to syrup. Peaches: Wash and scald, slip skins off, pit and cut into 1/2 inch slices. Pears: Wash, peel thinly and core. Cut lengthwise in 1/2 inch slices. Do not prepare large quantities at a time as the soft texture will begin to deteriorate. Pineapple: Wash and peel. Remove thorny eyes. Cut lenthwise and remove the core. Cut crosswise in 1/2 inch slices. Prune Plums: Wash, cut in half and remove stones. Flatten by pushing in the cupped side with your thumbs.

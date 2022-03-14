@@ -1,0 +1,15 @@
+## Dill Caraway Oil
+
+[a82bd2fabc](http://www.epicurious.com/recipes/food/views/dill-caraway-oil-13148)
+
+### Ingredients
+
+ - 1 teaspoon of spices, caraway seed
+
+ - 1/2 cup of dill weed, fresh
+
+ - 1/2 cup of oil, olive, salad or cooking
+
+### Instructions
+
+Preheat oven to 300F. With a mortar and pestle or a spice grinder grind caraway seeds coarse. In a 1-cup measure or very small metal bowl combine seeds with remaining ingredients. Set measuring cup or bowl on a baking sheet and cook in lower third of oven 1 hour. Cool on a rack 30 minutes. Line a small strainer with several layers of cheesecloth and strain oil into a glass jar. Flavored oil keeps, covered loosely and refrigerated at all times, 1 month.

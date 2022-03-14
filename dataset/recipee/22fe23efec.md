@@ -1,0 +1,19 @@
+## Balsamic vinaigrette
+
+[22fe23efec](https://cookpad.com/us/recipes/350252-balsamic-vinaigrette)
+
+### Ingredients
+
+ - 3/4 cup of vinegar, balsamic
+
+ - 1/2 cup of mustard, prepared, yellow
+
+ - 6 tablespoon of oil, olive, salad or cooking
+
+ - 1/4 teaspoon of salt, table
+
+ - 1/4 teaspoon of spices, pepper, black
+
+### Instructions
+
+Whisk all ingredients then chill minimum 2 hours.

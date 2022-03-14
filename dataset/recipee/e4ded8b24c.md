@@ -1,0 +1,21 @@
+## Honey Whole Wheat Bread
+
+[e4ded8b24c](http://www.food.com/recipe/honey-whole-wheat-bread-285899)
+
+### Ingredients
+
+ - 1 1/3 cup of water, bottled, generic
+
+ - 1 teaspoon of salt, table
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+ - 2 tablespoon of honey
+
+ - 3 cup of wheat flour, white, all-purpose, unenriched
+
+ - 2 teaspoon of leavening agents, yeast, baker's, active dry
+
+### Instructions
+
+put it into bread machine in that order and put on light crust setting. Take out and put in a plastic bag when finished cooking.

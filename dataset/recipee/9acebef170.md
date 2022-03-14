@@ -1,0 +1,33 @@
+## Vegan Choc Chip Blondies (Healthified)
+
+[9acebef170](http://www.food.com/recipe/vegan-choc-chip-blondies-healthified-460578)
+
+### Ingredients
+
+ - 3 ounce of tofu, raw, regular, prepared with calcium sulfate
+
+ - 14 cup of yogurt, greek, plain, nonfat
+
+ - 3 tablespoon of water, bottled, generic
+
+ - 13 cup of applesauce, canned, unsweetened, without added ascorbic acid (includes usda commodity)
+
+ - 18 cup of sugars, brown
+
+ - 1 teaspoon of vanilla extract
+
+ - 1 cup of wheat flour, white, all-purpose, unenriched
+
+ - 12 cup of wheat flour, white, all-purpose, unenriched
+
+ - 12 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 14 teaspoon of leavening agents, baking soda
+
+ - 1 pinch of salt, table
+
+ - 13 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Puree the tofu, yogurt, water and applesauce until smooth and fluffy. Transfer to a mixing bowl. Use a fork to vigorously mix in the sugar and vanilla. Sift in flours, baking soda, baking powder and salt. Use a spatula to mix batter until smooth. Fold in chocolate chips. Transfer to an 8X8 greased baking pan and smooth out the top. Bake in the preheated oven at 325F/150C for 25 minutes or until set. Remove from the oven and let the blondies cool for at least 30 minutes before slicing and serving. Enjoy.

@@ -1,0 +1,19 @@
+## Steamed Asparagus With Orange Butter Sauce
+
+[32ce4cadf6](http://www.food.com/recipe/steamed-asparagus-with-orange-butter-sauce-433841)
+
+### Ingredients
+
+ - 2 pound of asparagus, raw
+
+ - 12 cup of butter, without salt
+
+ - 13 cup of shallots, raw
+
+ - 1 1/4 teaspoon of mustard, prepared, yellow
+
+ - 1 1/3 cup of orange juice, raw
+
+### Instructions
+
+Rinse asparagus well, trim bottoms an stand upright in a steamer with water to cover 1/2 inch of the stalks. Steam until crisp-tender, about 8-10 minutes. Drain and keep warm. In the meanwhile, melt 1T of butter in a wide frying pan over medium heat. Add shallots/onion and cook, stirring until soft. Add mustard and juice. Bring to a boil over high heat and reduce to 1/3 cup. Remove sauce from heat and stir in remaining. Place asparagus on a serving platter and top with the sauce.

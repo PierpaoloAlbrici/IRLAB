@@ -1,0 +1,19 @@
+## Ginger Sweet Potatoes
+
+[9ffabfd5d4](http://www.food.com/recipe/ginger-sweet-potatoes-103477)
+
+### Ingredients
+
+ - 2 pound of sweet potato, raw, unprepared
+
+ - 1 1/4 cup of soup, swanson chicken broth 99% fat free
+
+ - 3 teaspoon of spices, ginger, ground
+
+ - 1 tablespoon of sugars, granulated
+
+ - 12 teaspoon of spices, cinnamon, ground
+
+### Instructions
+
+Preheat oven to 375. Lightly spray 9" baking dish. Arrange potato slices in dish. Combine broth and 1 1/2 tsp ginger in small bowl;pour over potatoes. Bake 1 hr. ,until tender. In a small bowl combine remaining ginger,sugar and cinnamon;sprinkle over potatoes and bake 20-30 minutes till brown and glazed.

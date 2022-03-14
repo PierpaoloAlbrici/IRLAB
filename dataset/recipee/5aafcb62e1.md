@@ -1,0 +1,21 @@
+## Papaya Salsa
+
+[5aafcb62e1](http://www.food.com/recipe/papaya-salsa-446212)
+
+### Ingredients
+
+ - 1 1/2 cup of papayas, raw
+
+ - 14 cup of fresh red onions, upc: 888670013229
+
+ - 14 cup of peppers, sweet, green, raw
+
+ - 1 tablespoon of peppers, jalapeno, raw
+
+ - 3 tablespoon of spices, coriander seed
+
+ - 1 tablespoon of lime juice, raw
+
+### Instructions
+
+In a medium bowl, combine all of the ingredients. Cover and refrigerate for at least 30 minutes before serving. Drain off liquid before serving.

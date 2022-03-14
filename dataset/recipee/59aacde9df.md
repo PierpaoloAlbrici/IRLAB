@@ -1,0 +1,25 @@
+## Southwestern Cinnamon Steak Rub
+
+[59aacde9df](http://www.food.com/recipe/southwestern-cinnamon-steak-rub-90276)
+
+### Ingredients
+
+ - 1 1/2 teaspoon of spices, cumin seed
+
+ - 1 1/2 teaspoon of spices, cinnamon, ground
+
+ - 1 teaspoon of spices, paprika
+
+ - 1 teaspoon of spices, oregano, dried
+
+ - 12 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of salt, table
+
+ - 14 teaspoon of spices, pepper, red or cayenne
+
+ - 2 teaspoon of sugars, brown
+
+### Instructions
+
+Toast cumin seeds in skillet 1-2 minutes. Remove from skillet and crush seeds. Combine Salt, Spices and brown sugar. Rub mix onto both sides of steak then refrigerate for 15 minutes Broil or grill steaks.

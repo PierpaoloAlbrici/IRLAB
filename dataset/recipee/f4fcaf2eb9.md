@@ -1,0 +1,23 @@
+## Traditional Sugar Cookies
+
+[f4fcaf2eb9](http://www.food.com/recipe/traditional-sugar-cookies-332441)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 14 teaspoon of salt, table
+
+ - 12 teaspoon of leavening agents, baking soda
+
+ - 14 teaspoon of spices, nutmeg, ground
+
+ - 12 cup of butter, without salt
+
+ - 34 cup of sugars, granulated
+
+ - 12 cup of cream, sour, cultured
+
+### Instructions
+
+Combine the flour, salt, baking soda, and nutmeg in a small dish. Cream the butter and sugar in a large dish, blend in the sour cream and then add dry ingredients. Chill for 1 to 2 hours. Roll out the dough until it is 1/2 inch thick on a sugar and floured surface. Cut with the cookie cutter and place on ungreased cookie sheet. Bake at 350 for 8-10 minutes. Cool before icing.

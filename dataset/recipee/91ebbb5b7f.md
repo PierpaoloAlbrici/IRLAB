@@ -1,0 +1,23 @@
+## Mother's Fudge
+
+[91ebbb5b7f](http://www.foodnetwork.com/recipes/mothers-fudge-recipe.html)
+
+### Ingredients
+
+ - 3 cup of sugars, granulated
+
+ - 1/2 cup of butter, without salt
+
+ - 1 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 1 dash of salt, table
+
+ - 4 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 teaspoon of vanilla extract
+
+ - 1 cup of nuts, pecans
+
+### Instructions
+
+Butter an 8 x 8-inch pan. Combine sugar, butter, milk, salt, and chocolate in medium saucepan. Stirring constantly, cook over medium heat until all ingredients melt and come to a boil. Do not scrape down the sides of the pan. Lower heat, insert candy thermometer, and let boil slowly without stirring for about 10 minutes or until soft ball forms when dropped in a cup of cold water (238 degrees F on a candy thermometer). Remove pan from heat and cool. Add vanilla. Beat steadily until fudge loses its gloss. Add nuts. Pour into pan. Cool for 20 minutes and cut into squares. Store in airtight container or wrap in tinfoil.

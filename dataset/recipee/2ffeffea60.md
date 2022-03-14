@@ -1,0 +1,23 @@
+## Stuffed Corn Bake
+
+[2ffeffea60](http://www.food.com/recipe/stuffed-corn-bake-501100)
+
+### Ingredients
+
+ - 14 3/4 ounce of corn, sweet, white, raw
+
+ - 15 1/4 ounce of corn, sweet, white, raw
+
+ - 12 cup of butter, without salt
+
+ - 6 ounce of chicken, broiler or fryers, breast, skinless, boneless, meat only, raw
+
+ - 12 cup of water, bottled, generic
+
+ - 12 teaspoon of spices, garlic powder
+
+ - 12 teaspoon of spices, pepper, black
+
+### Instructions
+
+In a bowl, combine all ingredients and stir until mixed well. Spoon into a greased 2-quart casserole dish. Bake uncovered, at 350 degrees for 30 minutes.

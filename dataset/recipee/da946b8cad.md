@@ -1,0 +1,15 @@
+## Coconut Oil Frosting
+
+[da946b8cad](http://allrecipes.com/recipe/coconut-oil-frosting/)
+
+### Ingredients
+
+ - 1/2 cup of shortening confectionery, coconut (hydrogenated) and or palm kernel (hydrogenated)
+
+ - 2 cup of sugars, granulated
+
+ - 1 teaspoon of vanilla extract
+
+### Instructions
+
+Microwave coconut oil until melted, 30 to 45 seconds. Beat coconut oil, confectioners' sugar, and vanilla extract together in a bowl with a hand mixer until desired consistency is reached.

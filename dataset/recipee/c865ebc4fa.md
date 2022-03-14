@@ -1,0 +1,19 @@
+## Peanut Butter Dog Treats 2
+
+[c865ebc4fa](https://cookpad.com/us/recipes/354385-peanut-butter-dog-treats-2)
+
+### Ingredients
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 cup of water, bottled, generic
+
+ - 1/2 cup of peanut butter, smooth style, without salt
+
+ - 1/4 cup of cornmeal, degermed, unenriched, yellow
+
+### Instructions
+
+Preheat oven to 350. In a large mixing bowl, add both flours and whisk until blended. Add hot water and mix well. Add peanut butter and mix until blended. Knead for 3 minutes. Sprinkle half the cornmeal over a sheet of waxed paper. Place dough on top of this. Sprinkle the remaining half of the cornmeal over the top of the dough. Roll 1/4 inch thick. Cut with 2 1/2 inch cookie cutters or cut into rectangles. Place on a greased cookie sheet. Bake at 350 for 25 minutes. (for harder treats, you can bake up to 40 minutes.) These will be slightly puffy. *The can keep 1 to 2 weeks in a sealed container, 2 to 3 weeks in the refrigerator, or 6 weeks in the freezer as long as they are properly wrapped.

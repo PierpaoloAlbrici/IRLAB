@@ -1,0 +1,25 @@
+## Candied Spiced Mixed Nuts (smucker's)
+
+[b7ba4a8c9e](http://www.food.com/recipe/candied-spiced-mixed-nuts-smuckers-101752)
+
+### Ingredients
+
+ - 1 teaspoon of oil, olive, salad or cooking
+
+ - 4 cup of nuts, walnuts, english
+
+ - 23 cup of strawberries, raw
+
+ - 2 tablespoon of spices, paprika
+
+ - 2 teaspoon of spices, cumin seed
+
+ - 12 cup of sugars, brown
+
+ - 1 teaspoon of spices, paprika
+
+ - 1 teaspoon of spices, cumin seed
+
+### Instructions
+
+Lightly oil a large stainless steel bowl, place nuts in bowl and set aside. Melt the jelly over medium heat in a small saucepan; add the paprika and cumin. Cook the mixture to the hard ball stage, or 260 degrees as measured on a candy thermometer; you can test for the hardball stage by dropping a teaspoon of the mixture into a glass of iced water; the mixture will harden instantly. Immediately pour the mixture over the nuts and stir with a wooden spoon to evenly coat. Allow the mixture to cool for five minutes. Once it is cool enough to handle, sprinkle the nuts with the brown sugar coating and stir to combine. Let cool completely, then pack into decorative, airtight tins. Variation: Use Smucker's Orange Marmalade in place of the strawberry preserves.

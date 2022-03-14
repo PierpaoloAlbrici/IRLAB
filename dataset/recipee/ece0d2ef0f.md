@@ -1,0 +1,25 @@
+## Chile Lime Popcorn
+
+[ece0d2ef0f](http://www.foodnetwork.com/recipes/marcela-valladolid/chile-lime-popcorn.html)
+
+### Ingredients
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 1/2 teaspoon of salt, table
+
+ - 1/2 cup of snacks, popcorn, air-popped (unsalted)
+
+ - 2 tablespoon of lime juice, raw
+
+ - 1/3 cup of seeds, pumpkin and squash seeds, whole, roasted, without salt
+
+ - 1 cup of seeds, pumpkin and squash seeds, whole, roasted, without salt
+
+ - 1 tablespoon of lime juice, raw
+
+ - 1 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+Heat the oil and salt in a 4-quart pan (with lid) on medium-high heat. Add the popcorn, cover and reduce the heat when it starts to pop. Shake occasionally during popping, and remove from the heat when almost all of the kernels are popped. Season with the chile lime powder, stir in the Chile Lime Pumpkin Seeds and serve. Toss the pumpkin seeds with the chile lime powder and olive oil, making sure every single seed is coated. Heat a small saute pan on medium-high heat. Toast the pumpkin seeds until crispy, making sure not to burn them, about 3 minutes. Cool and serve. Yield: 1 cup

@@ -1,0 +1,27 @@
+## Savoury Fish Bake
+
+[6b86ecbde2](http://www.food.com/recipe/savoury-fish-bake-172084)
+
+### Ingredients
+
+ - 1 1/2 pound of sauce, fish, ready-to-serve
+
+ - 12 teaspoon of spices, basil, dried
+
+ - 12 teaspoon of salt, table
+
+ - 1 ounce of butter, without salt
+
+ - 2 teaspoon of lemon juice, raw
+
+ - 1 cup of delallo, italian seasoned breadcrumbs, upc: 072368104621
+
+ - 1 cup of cheese, parmesan, hard
+
+ - 1 teaspoon of parsley, fresh
+
+ - 2 tablespoon of tomato sauce, canned, no salt added
+
+### Instructions
+
+Place fish into a lightly geased baking dish. Combine the breadcrumbs, cheese, basil, salt and parsley. Stir together tomato sauce, lemon juice and melted butter. Mix the crumb mixture into the melted butter mixture and spread evenly over the fish. Cover with tinfoil and bake at 379 F (180 C ) for 30 minutes.

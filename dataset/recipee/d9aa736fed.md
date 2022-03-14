@@ -1,0 +1,13 @@
+## Microwave Cornmeal Mush
+
+[d9aa736fed](http://www.food.com/recipe/microwave-cornmeal-mush-390251)
+
+### Ingredients
+
+ - 14 cup of cornmeal, degermed, unenriched, yellow
+
+ - 1 cup of water, bottled, generic
+
+### Instructions
+
+Use a 2 quart round bottomed bowl. Place all ingredients in the bowl and cover top with plastic wrap. Cook on high for 2 minutes. Remove and stir with fork. Replace plastic wrap and cook for 2 more minutes. Remove and stir. Replace plastic wrap and cook for 1 more minute. Mix in desire seasoning then its hot and ready to eat!

@@ -1,0 +1,27 @@
+## Summer's Bounty Grilled Shrimp Salad
+
+[bd8b1be9db](http://www.kraftrecipes.com/recipes/summers-bounty-grilled-shrimp-salad-75602.aspx)
+
+### Ingredients
+
+ - 1/2 cup of salad dressing, italian dressing, commercial, regular
+
+ - 2 tablespoon of soy sauce made from soy (tamari)
+
+ - 2 teaspoon of lime juice, raw
+
+ - 6 cup of radicchio, raw
+
+ - 1 cup of seeds, pumpkin and squash seeds, whole, roasted, without salt
+
+ - 1 cup of cherries, sweet, raw
+
+ - 1/2 cup of fresh red onions, upc: 888670013229
+
+ - 1 pound of crustaceans, shrimp, raw (not previously frozen)
+
+ - 1/4 cup of nuts, almonds
+
+### Instructions
+
+Preheat grill to medium heat. Combine dressing, soy sauce and lime zest. Remove 1/3 cup of the dressing mixture; place in small bowl. Refrigerate until ready to use. Toss salad greens with the zucchini, tomatoes and onions in salad bowl; cover. Refrigerate until ready to serve. Thread shrimp evenly onto wooden or metal skewers. Grill 5 to 6 min. on each side or until shrimp turn pink, turning occasionally and brushing with the remaining dressing mixture. Remove shrimp from skewers; place over the salad. Add the reserved 1/3 cup dressing; toss to coat. Sprinkle with almonds.

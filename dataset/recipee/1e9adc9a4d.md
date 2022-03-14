@@ -1,0 +1,19 @@
+## No Rise Pizza Dough
+
+[1e9adc9a4d](http://www.food.com/recipe/no-rise-pizza-dough-192092)
+
+### Ingredients
+
+ - 2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of leavening agents, yeast, baker's, active dry
+
+ - 1 cup of water, bottled, generic
+
+ - 2 tablespoon of oil, olive, salad or cooking
+
+### Instructions
+
+Sprinkle the yeast over 1/4 cup of water and stir in 1 tbl of the flour. Once it is puffy, stir into the rest of the water and add the olive oil. Add 1 1/2 Cup flour, mix well. Knead on flour covered board 4-6 minutes, adding more flour if necessary. Cover and let rest 10 minutes. Divide dough in half to make two 12 inch rounds or use all of it for one deep dish (9x13). Top and bake as recommended for your favorite recipe.

@@ -1,0 +1,21 @@
+## Peanut Butter Oat Balls
+
+[ae280bfbd2](http://tastykitchen.com/recipes/desserts/peanut-butter-oat-balls-2/)
+
+### Ingredients
+
+ - 1 cup of oats
+
+ - 1/2 cup of seeds, flaxseed
+
+ - 1/2 cup of mini semi-sweet chocolate baking chips, upc: 719283140692
+
+ - 1 cup of peanut butter, smooth style, without salt
+
+ - 1/4 cup of honey
+
+ - 1/2 teaspoon of vanilla extract
+
+### Instructions
+
+Add oats, flax seed meal and mini chocolate chips to a large bowl. Stir to combine. Add peanut butter, honey and vanilla extract. Using a wooden spoon or rubber spatula, stir until thoroughly combined. The mixture will be very thick. Shape the mixture into tablespoon-sized balls. Transfer the balls to an airtight container, separating each layer with wax paper. Store in the refrigerator until ready to eat.

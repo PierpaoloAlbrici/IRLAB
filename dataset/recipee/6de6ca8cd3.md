@@ -1,0 +1,21 @@
+## Chicken Wings
+
+[6de6ca8cd3](http://www.food.com/recipe/chicken-wings-302159)
+
+### Ingredients
+
+ - 4 pound of chicken, broilers or fryers, wing, meat and skin, raw
+
+ - 14 cup of soy sauce made from soy (tamari)
+
+ - 14 cup of oil, olive, salad or cooking
+
+ - 1 tablespoon of mustard, prepared, yellow
+
+ - 1 tablespoon of molasses
+
+ - 12 tablespoon of spices, garlic powder
+
+### Instructions
+
+Marinade overnight. Bake at 375 for 1 hours.

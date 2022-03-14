@@ -1,0 +1,23 @@
+## Green Onion Biscuits
+
+[ebdeaf2e61](http://www.food.com/recipe/green-onion-biscuits-82197)
+
+### Ingredients
+
+ - 3 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1 tablespoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 1 teaspoon of salt, table
+
+ - 1 teaspoon of spices, pepper, black
+
+ - 2 cup of cream, whipped, cream topping, pressurized
+
+ - 1 cup of onions, spring or scallions (includes tops and bulb), raw
+
+ - 2 tablespoon of butter, without salt
+
+### Instructions
+
+In large bowl stir together flour, baking powder, salt, and pepper. In a small bowl combine whipping cream and green onions. Add all at once to flour mixture; stir until just moistened. Turn dough out onto a lightly floured surface. Knead by folding and gently pressing for 6 to 8 strokes or just until dough holds together. Roll or pat dough into an 8 inch square. Cut into 2 inch square biscuits. Preheat the oven to 425 degrees. Place 1 inch apart on an ungreased baking sheet. Brush with melted butter. Bake for about 18 minutes or until golden. Remove from baking sheet. Serve warm.

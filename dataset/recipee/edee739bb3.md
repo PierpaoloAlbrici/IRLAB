@@ -1,0 +1,23 @@
+## My Fathers Bleu Cheese Dip
+
+[edee739bb3](http://tastykitchen.com/recipes/appetizers-and-snacks/my-fathere28099s-bleu-cheese-dip/)
+
+### Ingredients
+
+ - 8 ounce of cheese, parmesan, hard
+
+ - 1/2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 4 ounce of cheese, parmesan, hard
+
+ - 6 drop of lemon juice, raw
+
+ - 6 drop of sauce, worcestershire
+
+ - 1/4 teaspoon of mustard, prepared, yellow
+
+ - 8 dash of salt, table
+
+### Instructions
+
+Bring cream cheese to room temperature. Add milk until cream cheese has the consistency of thin pudding. Run bleu cheese through a mouli grater, add to cream cheese. Add lemon juice, Worcestershire sauce, dry mustard. Use a potato chip to taste. If you used a good bleu cheese, you may not need to add any salt at all.

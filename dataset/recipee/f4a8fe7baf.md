@@ -1,0 +1,23 @@
+## Turkey Meatloaf Guesswork
+
+[f4a8fe7baf](http://www.food.com/recipe/turkey-meatloaf-guesswork-406914)
+
+### Ingredients
+
+ - 1 pound of ground turkey, raw
+
+ - 14 cup of catsup
+
+ - 14 cup of catsup
+
+ - 6 teaspoon of spices, basil, dried
+
+ - 12 cup of egg, white, raw, fresh
+
+ - 1 cup of oats
+
+ - 4 ounce of tomato sauce, canned, no salt added
+
+### Instructions
+
+preheat oven to 350. mix all ingredients but sauce in a bowl. fill 8x4 pan with mix. pour pasta over tin. place loaf pan on cookie sheet (to prevent spillage? ). Bake for 1 hour.

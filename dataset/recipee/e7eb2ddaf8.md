@@ -1,0 +1,23 @@
+## Beef Satay
+
+[e7eb2ddaf8](http://www.food.com/recipe/beef-satay-157115)
+
+### Ingredients
+
+ - 1 1/2 pound of beef, grass-fed, ground, raw
+
+ - 13 cup of soy sauce made from soy (tamari)
+
+ - 2 tablespoon of sugars, granulated
+
+ - 2 tablespoon of cornstarch
+
+ - 1 1/2 tablespoon of sauce, hoisin, ready-to-serve
+
+ - 1 tablespoon of spices, ginger, ground
+
+ - 1 tablespoon of spices, garlic powder
+
+### Instructions
+
+Arrange meat in a shallow pan. Combine remaining ingredients and pour aver meat. Marinate, covered and refrigerated, overnight. Drain. Thread each strip of meat lenghtwise on a soaked bambo skewer, weaving it in and out. Grill until browned on both sides.

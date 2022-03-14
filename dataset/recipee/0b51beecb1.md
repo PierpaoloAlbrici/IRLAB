@@ -1,0 +1,15 @@
+## Cinnamon Crunch Mix
+
+[0b51beecb1](http://www.kraftrecipes.com/recipes/cinnamon-crunch-mix-57044.aspx)
+
+### Ingredients
+
+ - 2 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1 cup of apples, raw, with skin
+
+ - 1/8 teaspoon of spices, cinnamon, ground
+
+### Instructions
+
+Toss ingredients until well blended. Place 1/2-cup portions in individual snack bags. Store at room temperature.

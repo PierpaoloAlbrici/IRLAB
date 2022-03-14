@@ -1,0 +1,27 @@
+## Broccoli Walnut
+
+[0ea7bd1d9f](http://www.food.com/recipe/broccoli-walnut-442175)
+
+### Ingredients
+
+ - 3 pound of broccoli, raw
+
+ - 12 cup of butter, without salt
+
+ - 4 tablespoon of wheat flour, white, all-purpose, unenriched
+
+ - 1 1/2 tablespoon of soup, chicken broth or bouillon, dry
+
+ - 2 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 23 cup of water, bottled, generic
+
+ - 6 tablespoon of butter, without salt
+
+ - 12 pound of wheat flours, bread, unenriched
+
+ - 23 cup of nuts, walnuts, english
+
+### Instructions
+
+Cook broccoli in salted boiling water until tender. Drain. Place broccoli in a greased 2-quart casserole. In a saucepan, melt the half cup of butter. Whisk in flour and chicken base to form a smooth paste; cook 1-2 minutes to remove pasty flavor from flour. Slowly add milk and stir until thick and smooth. Pour over broccoli. Heat the water and 6 tablespoons of butter and pour over stuffing/breadcrumbs. Toss, add nuts and cover broccoli. Bake at 400F for 20 minutes.

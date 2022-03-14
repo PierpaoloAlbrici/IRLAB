@@ -1,0 +1,25 @@
+## Ridiculously Rich Cream Cheese Truffles
+
+[8f1cdfa8e2](http://www.food.com/recipe/ridiculously-rich-cream-cheese-truffles-48960)
+
+### Ingredients
+
+ - 8 ounce of cheese, parmesan, hard
+
+ - 5 cup of sugars, granulated
+
+ - 4 ounce of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+ - 4 ounce of pascha, organic bitter-sweet dark chocolate chips, upc: 842638005022
+
+ - 3 tablespoon of marmalade, orange
+
+ - 1 tablespoon of vanilla extract
+
+ - 1 teaspoon of orange juice, raw
+
+ - 14 cup of nuts, pecans
+
+### Instructions
+
+Soften cream cheese and add the marmalade and extracts. Blend well. Add confectioner's sugar until the mixture begins to be firm and dry enough not to stick to your hands. (This can be done inside a ziploc gallon bag if you like.) Make small balls and place on a baking sheet and chill in the fridge briefly while you prepare the choc and nuts. Melt the chocolate bars in a double boiler at moderate heat until just soft enough to blend and stir. Crush the pecans finely. Dip the molded cream cheese balls in the melted choc, return to the baking sheet. Do them quickly enough and you can sprinkle the pecans over them all at one go. Let set and wrap or store in paper cups in a tin. Refrigerate if you won't be eating them soon.

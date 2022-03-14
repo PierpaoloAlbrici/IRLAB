@@ -1,0 +1,25 @@
+## Alton Brown Seedy Crisps
+
+[59aacf1d8b](http://www.food.com/recipe/alton-brown-seedy-crisps-462775)
+
+### Ingredients
+
+ - 5 ounce of wheat flour, white, all-purpose, unenriched
+
+ - 4 3/4 ounce of wheat flour, white, all-purpose, unenriched
+
+ - 13 cup of spices, poppy seed
+
+ - 13 cup of seeds, sesame seeds, whole, dried
+
+ - 1 1/2 teaspoon of salt, table
+
+ - 1 1/2 teaspoon of leavening agents, baking powder, double-acting, sodium aluminum sulfate
+
+ - 3 tablespoon of oil, olive, salad or cooking
+
+ - 6 1/2 ounce of water, bottled, generic
+
+### Instructions
+
+In a medium bowl whisk together both flours, poppy seeds, sesame seeds, salt, and baking powder. Add the oil and stir until combined. Add the water and stir to combine and create a dough. Turn the dough out onto a floured surface and knead 4 to 5 times. Divide the dough into 8 equal pieces, cover with a tea towel and allow to rest for 15 minutes. Preheat the oven to 450 degrees F. For a thin snacking cracker: On a lightly floured surface, roll out 1 piece of dough to 1/16-inch and place on a parchment lined baking sheet. If there is room on the sheet pan, repeat with a second piece of dough. Bake on the middle rack of the oven for 4 minutes then flip and bake for an additional 2 to 3 minutes or until golden brown. Remove from the oven and place on a cooling rack. When cool, break into desired size pieces. Repeat procedure with remaining dough. For a thicker dipping cracker: On a lightly floured surface, roll out the dough as above but to 1/8-inch thick. Bake for 6 minutes on the first side, then flip and bake another 4 to 6 minutes. For super even thickness and easy rolling: Roll out using a lightly floured pasta roller. Flatten the dough until it will pass through the first setting and go to the highest number that your pasta roller will allow without tearing the dough. Bake according to the thin cracker instructions. Note: Baking times will vary depending on exact thickness of dough and oven temperature, so watch them closely. Store in an airtight container for up to 2 weeks.

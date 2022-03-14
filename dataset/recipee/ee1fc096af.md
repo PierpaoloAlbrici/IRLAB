@@ -1,0 +1,15 @@
+## Chocolate Caramel Martini
+
+[ee1fc096af](http://www.food.com/recipe/chocolate-caramel-martini-457273)
+
+### Ingredients
+
+ - 1 fl. oz of alcoholic beverage, distilled, vodka, 80 proof
+
+ - 1 fl. oz of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 fl. oz of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Swirl Somebody's Mother's Caramel Sauce around the inside rim of a martini glass. Fill shaker with ice. Pour in ingredients. Shake well and pour into the martini glass. If done correctly, it should taste like an adult milkshake. A little whipped cream on top never hurt anyone either!

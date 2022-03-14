@@ -1,0 +1,19 @@
+## Good Dog Bones
+
+[beae6c13a3](http://cooking.nytimes.com/recipes/1228)
+
+### Ingredients
+
+ - 1 1/2 cup of wheat flour, white, all-purpose, unenriched
+
+ - 1/2 cup of wheat germ, crude
+
+ - 1 tablespoon of sugars, brown
+
+ - 1 1/4 cup of peanut butter, smooth style, without salt
+
+ - 3/4 cup of milk, fluid, 1% fat, without added vitamin a and vitamin d
+
+### Instructions
+
+Preheat oven to 400 degrees. Line two or three cookie sheets with aluminum foil or parchment. In a mixing bowl, whisk together flour, wheat germ and sugar. In the large bowl of an electric mixer, beat peanut butter and milk together until combined. On low speed, gradually add the flour mixture and beat until just combined. Turn the dough out onto a lightly floured board and knead lightly. On the same surface, roll dough 1/4inch thick and, with cutters, cut into bones or other shapes. Transfer to cookie sheets, placing about 1/2inch apart. Bake for 12 to 15 minutes or until slightly browned. Let the cookies cool on the sheets for about two minutes then remove to cooling racks to cool completely. Store well wrapped at room temperature for two to three days or refrigerate or freeze.

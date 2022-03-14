@@ -1,0 +1,13 @@
+## Steamed White Rice
+
+[baa4f2e9a8](http://www.food.com/recipe/steamed-white-rice-180569)
+
+### Ingredients
+
+ - 2 cup of rice, white, long-grain, regular, unenriched, cooked without salt
+
+ - 3 cup of water, bottled, generic
+
+### Instructions
+
+Put the rice in a 3 quart pot or saucepan with a tight fitting lid (don't put the lid on yet!) and pour in the water. Bring to a boil, and cook until the surface looks "cratery" (like the surface of hot lava or something). Reduce heat to low, cover, and cook for about ten minutes, till the water is gone. Let rice stand for a minute or two, then remove the lid, fluff the rice, and serve!

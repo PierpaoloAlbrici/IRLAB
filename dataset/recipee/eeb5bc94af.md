@@ -1,0 +1,23 @@
+## White Chocolate Jingle Candy
+
+[eeb5bc94af](http://allrecipes.com/recipe/white-chocolate-jingle-candy/)
+
+### Ingredients
+
+ - 1 3/4 cup of candies, marshmallows
+
+ - 1 3/4 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1 3/4 cup of cereals, oats, regular and quick, unenriched, cooked with water (includes boiling and microwaving), without salt
+
+ - 1 3/4 cup of pretzels, soft, unsalted
+
+ - 1 3/4 cup of oil, corn, peanut, and olive
+
+ - 24 ounce of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+ - 1 cup of spartan, real semi-sweet chocolate baking chips, upc: 011213162966
+
+### Instructions
+
+Combine marshmallows, corn cereal puffs, rice cereal, pretzel sticks, and peanuts in a large bowl. Melt white chocolate in a microwave-safe glass or ceramic bowl at 50% power in 30-second intervals, stirring after each melting, for 1 minute 30 seconds. Continue heating in microwave, stirring every 15 seconds, until melted. Do not overheat or chocolate will scorch. Pour melted white chocolate over cereal mixture and gently stir to coat; add chocolate pieces. Drop mixture by large spoonfuls onto a piece of waxed paper. Allow to harden for about 15 minutes.
